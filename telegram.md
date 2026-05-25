@@ -7,6 +7,243 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/04 14:42
+---
+
+## VahidOOnLine — post 242113
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_242113_1779707568.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+پایگاه خبری بلومبرگ گزارش داد شرکت نفت ابوظبی در هفته‌های اخیر با استفاده از ناوگان خود و به‌کارگیری روش‌های خاص، صادرات نفت و گاز از خلیج فارس را ادامه داده است.
+
+بر اساس این گزارش، برخی نفتکش‌ها با خاموش کردن سامانه‌های ردیابی هنگام عبور از تنگه هرمز موفق شده‌اند محموله‌ها را جابه‌جا کنند. هم‌زمان، قطر نیز به‌صورت نامحسوس صادرات گاز طبیعی مایع (ال‌ان‌جی) را از تنگه هرمز ادامه داده و دست‌کم یک کشتی حامل ال‌ان‌جی پس از عبور از این مسیر راهبردی، در مسیر چین رصد شده است. اگرچه حجم این انتقال‌ها هنوز با سطح تجارت پیش از جنگ فاصله دارد، اما به گفته بلومبرگ، این تحرکات نشان‌دهنده تلاش تولیدکنندگان انرژی منطقه برای حفظ جریان صادرات و ایجاد موازنه میان فشارهای ایران و ایالات متحده است.
+iranintl
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 242112
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+در حالیکه ۸۷ روز از خاموشی دیجیتال و قطع ارتباط ایران با جهان می‌گذرد، رسانه‌های داخلی به‌نقل از منابع آگاه گزارش دادند که در چهارمین جلسه «ستاد راهبری و ساماندهی فضای مجازی» به ریاست محمدرضا عارف، معاون اول پزشکیان، «مصوب شده تا اینترنت به وضعیت پیش از دی‌ماه ۱۴۰۴ باز گردد.»
+
+این خبر در حالی منتشر می‌شود که اینترنت در ایران از زمان آغاز جنگ با آمریکا و اسرائیل قطع شده است. پیش از آن هم دسترسی به اینترنت از روزهای ۱۸ و ۱۹ دی‌ماه و همزمان با انقلاب ملی ایرانیان و کشتار گسترده مردم، قطع شده بود.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 242111
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_242111_1779707569.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+علیرضا سلیمی، عضو هیات رییسه مجلس، گفت آمریکا هیچ‌گاه به دنبال مذاکره واقعی برای پایان دادن به تنش‌ها نبوده و از میز مذاکره فقط به‌عنوان «تله‌گذاری» برای پیشبرد اقدامات «خصمانه» بعدی استفاده می‌کند.
+
+او افزود: «اگر مقام‌های آمریکایی صادق بودند و حسن نیت داشتند، هم‌زمان با سخن گفتن از مذاکره، تحریم‌های جدید علیه جمهوری اسلامی اعمال نمی‌کردند.»
+iranintl
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## WithYashar — post 12410
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ترامپ: چیزهایی هست که از اول هم با ایران در موردشان مذاکره نشده بود
+@withyashar
+</div>
+
+## mwarmonitor — post 9675
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Hey you yellow-headed real estate hustler, how can an orange old man be so spineless, pathetic, and cowardly? You vilely free-rode on the blood and slaughter of 45,000 Iranians just to buy yourself a fake license to attack and a tough-guy posture. But look at you now—like a bankrupt political vulture, you're on your knees begging for a deal with the exact same terrorist sect you curse day and night!
+Wipe that filthy smirk off your face; you are worse than Obama. At least he didn't screw over a nation of 80 million like this, nor did he use the spilled blood of half of them to buy himself fake credit. Screw your "art of the deal" where you swallowed every single loud promise you made and are now wagging your tail to get a photo-op with murderers!
+Finish what you started like a man. Otherwise, with this humiliation and hidden begging, you won't just flush your own lack of dignity down the toilet of history—you will be recorded forever as an eternal stain of disgrace, a loser dushman-begging broker, and an absolute idiot who mistook human blood for his own real estate projects!
+
+@RealDonaldTrump
+@DonaldJTrumpJr
+@EricTrump
+@JDVance
+@elonmusk
+@VivekGRamaswamy
+@susie57
+@StephenM
+@marcorubio
+@michaelgwaltz
+@SenTomCotton
+@tedcruz
+@LindseyGrahamSC
+@HawleyMO
+@SenRickScott
+@SenRonJohnson
+@kleavittnh
+@TeamTrump
+</div>
+
+## mwarmonitor — post 9674
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+‼️این متن رو به انگلیسی تو اینستاگرام و ایکس استفاده کنید. ترامپ و هرکی رو می‌شناسید تگ کنید که به دستش برسه.
+</div>
+
+## IranIntlTV — post 338910
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_338910_1779707569.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+مروری بر روزنامه‌های ایران، دوشنبه ۴ خرداد، با مجتبی هاشمی، روزنامه‌نگار
+@iranintltv
+</div>
+
+## IranIntlTV — post 338909
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_338909_1779707572.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+پایگاه خبری بلومبرگ گزارش داد شرکت نفت ابوظبی در هفته‌های اخیر با استفاده از ناوگان خود و به‌کارگیری روش‌های خاص، صادرات نفت و گاز از خلیج فارس را ادامه داده است.
+
+بر اساس این گزارش، برخی نفتکش‌ها با خاموش کردن سامانه‌های ردیابی هنگام عبور از تنگه هرمز موفق شده‌اند محموله‌ها را جابه‌جا کنند. هم‌زمان، قطر نیز به‌صورت نامحسوس صادرات گاز طبیعی مایع (ال‌ان‌جی) را از تنگه هرمز ادامه داده و دست‌کم یک کشتی حامل ال‌ان‌جی پس از عبور از این مسیر راهبردی، در مسیر چین رصد شده است. اگرچه حجم این انتقال‌ها هنوز با سطح تجارت پیش از جنگ فاصله دارد، اما به گفته بلومبرگ، این تحرکات نشان‌دهنده تلاش تولیدکنندگان انرژی منطقه برای حفظ جریان صادرات و ایجاد موازنه میان فشارهای ایران و ایالات متحده است.
+iranintl.com/202605253407
+</div>
+
+## IranIntlTV — post 338908
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_338908_1779707573.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+علیرضا سلیمی، عضو هیات رییسه مجلس، گفت آمریکا هیچ‌گاه به دنبال مذاکره واقعی برای پایان دادن به تنش‌ها نبوده و از میز مذاکره فقط به‌عنوان «تله‌گذاری» برای پیشبرد اقدامات «خصمانه» بعدی استفاده می‌کند.
+
+او افزود: «اگر مقام‌های آمریکایی صادق بودند و حسن نیت داشتند، هم‌زمان با سخن گفتن از مذاکره، تحریم‌های جدید علیه جمهوری اسلامی اعمال نمی‌کردند.»
+iranintl.com/202605259691
+</div>
+
+## FarsiVOA — post 218608
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔺ترامپ: توافق با تهران یا «بزرگ و معنادار» خواهد بود یا اصلاً در کار نخواهد بود
+
+◾️دونالد ترامپ با دفاع از روند مذاکرات کنونی با جمهوری اسلامی، اعلام کرد که واشنگتن یا به یک «توافق بزرگ و معنادار» دست خواهد یافت یا هیچ توافقی انجام نخواهد شد.
+
+◾️او در پیامی در شبکه تروت‌سوشال تصریح کرد که «این توافق دقیقاً نقطه مقابل فاجعه برجام خواهد بود که توسط دولت شکست‌خورده اوباما مذاکره شد؛ توافقی که یک مسیر مستقیم و آشکار به سوی دستیابی ایران به سلاح هسته‌ای بود.»
+
+◾️ساعاتی قبل، وزیر خارجه آمریکا، اعلام کرد که واشنگتن با تهران به یک توافق خوب خواهد رسید یا به «شیوه‌ای دیگر» با جمهوری اسلامی برخورد خواهد کرد، زیرا هیچ کس به اندازه دونالد ترامپ نسبت به تهدید هسته‌ای حکومت ایران جدی نبوده است.
+
+⬇️ بیشتر بخوانید:
+https://ir.voanews.com/a/deal-with-iran-will-be-great-and-meaningful-or-there-will-be-no-deal-trump-says/8153584.html
+</div>
+
+## FarsiVOA — post 218607
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔺مصوبه «اتصال اینترنت بین‌الملل» برای اجرا «در انتظار تأیید پزشکیان» است
+
+◾️منابع داخلی ایران از تصویب مصوبه‌ای تازه درباره اتصال اینترنت بین‌الملل خبر داده‌اند؛ مصوبه‌ای که هنوز اجرا نشده و اجرای آن به تأیید نهایی مسعود پزشکیان و ابلاغ به وزارت ارتباطات و فناوری اطلاعات منوط است.
+
+◾️جزئیات دقیق مصوبه، سطح اتصال، زمان اجرا و اینکه آیا این تصمیم شامل بازگشت عمومی اینترنت بین‌الملل می‌شود یا فقط بخشی از محدودیت‌ها را کاهش می‌دهد، هنوز اعلام نشده است.
+
+◾️ستاد ویژه ساماندهی فضای مجازی، به تازگی به حکم پزشکیان به معاون اولش عارف تشکیل شده و نخستین تصمیم مهم این ستاد در شرایطی اعلام می‌شود که هم‌زمان گزارش‌هایی درباره کم‌تحرکی شورای عالی فضای مجازی منتشر شده است.
+
+⬇️ بیشتر بخوانید:
+https://ir.voanews.com/a/8153583.html
+</div>
+
+## Dirty_Kids — post 390136
+
+<div align="center">
+  <img src="telegram/content/Dirty_Kids_390136_1779707574.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ترامپ: من می‌خندم به همه‌ی این دموکرات‌های مادرقحبه‌ی احمق.
+
+
+راینوها [جمهوری‌خواهان اسمی] و نادان‌هایی که هیچ‌چی از توافق احتمالی من با رژیم هزارپدر روافض نمی‌دونن، چیزهایی که هنوز حتی مذاکره هم درباره‌شون نشده.
+
+آدم‌های ضعیف و بی‌عرضه‌ای مثل سناتور شکست‌خورده‌ تام‌تیلیس (که به زودی از کار برکنار میشه)، بیل‌کسیدی که همین تازگی‌ها توی انتخابات مقدماتی یه شکست سنگین خورد، و نماینده‌ی واقعاً پدرقحبه‌ی کنگره توماس‌مسی یه آدم کثیف و کسکش تمام‌عیار که بعد از نشون دادن بی‌وفایی شدید به حزبش و کشور در یه شکست مفتضحانه و تاریخی بازی رو به یه میهن‌پرست بزرگ آمریکایی [با حمایت و تایید ترامپ] واگذار کرد.
+
+و تقریباً همه‌ی دموکرات‌های قرمساق، آدم‌هایی که کلاً راهشون رو گم کردن، دائماً از سیاست‌های بد و نامزدهای حتی بدتر حمایت می‌کنن، اما در عین حال، مدام از تک‌تکِ بردهای فوق‌العاده من ایراد می‌گیرن.
+
+این پدرخراب‌ها باید برن خونه‌شون و استراحت کنن، کارشون فقط تفرقه‌اندازی و باخته. به عبارت دیگه، اینا یه مشت بازنده‌‌ی مادرقحبه‌ان.
+
+توافق با رژیم روافض یا یه توافق بزرگ و پرمعنی می‌شه، یا اصلاً توافقی در کار نخواهد بود.
+
+این دقیقاً برعکس فاجعه‌ی برجام خواهد بود که توسط دولت شکست‌خورده‌ی اوبامای قحبه مذاکره شد. همون توافقی که یه مسیر مستقیم و باز برای رسیدن ایران به سلاح هسته‌ای بود.
+
+خیر عزیزان، من از این‌جور توافق‌ها نمی‌کنم [اینقدر کسخل و‌مشنگ نیستم که به روافض کون بدم]
+
+رئیس‌جمهور دی‌جی‌تی،
+
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 390135
+
+<div align="center">
+  <a href="telegram/content/Dirty_Kids_390135_1779707574.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+از وقتی اینترنت قطع شده انلاین شاپا دست به هرکاری میزنن بتونن جنساشونو بفروشن
+
+
+@Dirty_Kids 👻
+</div>
+
+## alonews — post 122537
+
+<div align="center">
+  <a href="telegram/content/alonews_122537_1779707576.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈ترامپ از طریق Truth Social: دموکرات‌ها سیاست‌های بد و نامزدهای بدی دارند. غیر از این، آن‌ها عملکرد نسبتاً خوبی دارند!
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 122536
+
+<div align="center">
+  <a href="telegram/content/alonews_122536_1779707576.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈ترامپ از طریق Truth Social:
+روز یادبود مبارک به همه، از جمله دموکرات‌هایی که به ارتش ما و تمام موفقیت‌های عظیمی که در سال گذشته داشته است بی‌احترامی می‌کنند.
+
+
+🔴خداوند کسانی را که بالاترین فداکاری را کرده‌اند، برکت دهد. من همه شما را دوست دارم!
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 122535
+
+<div align="center">
+  <a href="telegram/content/alonews_122535_1779707576.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈شهباز شریف، نخست‌وزیر پاکستان در دیدار با رئیس جمهور چین گفت: پیشرفت قابل توجهی در مذاکرات ایران و آمریکا حاصل شده و اوضاع در مسیر درست پیش می‌رود
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+---
 📅 بروزرسانی: 1405/03/04 14:32
 ---
 
