@@ -7,6 +7,123 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/04 19:32
+---
+
+## VahidOOnLine — post 242138
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_242138_1779724961.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️حساب رسمی کنسولگری جمهوری اسلامی ایران در حیدرآباد هند، در واکنش به بازدید مارکو روبیو، وزیر امور خارجه آمریکا، از تاج محل، دولت آمریکا را به تهدید تمدن ایران متهم کرد.
+
+مارکو روبیو روز دوشنبه چهارم خرداد به همراه همسرش ژانت دوسدبس از تاج محل، بنای مشهور شهر آگرا در هند، بازدید کرد و در برابر این اثر تاریخی عکس گرفت.
+پس از انتشار تصاویر این بازدید، حساب رسمی کنسولگری ایران در حیدرآباد در شبکه اجتماعی اکس نوشت: «اگر روبیو تاریخ یا معماری را می‌شناخت، اینجا برای عکس گرفتن نمی‌ایستاد.»
+کنسولگری ایران در حیدرآباد هند با یادآوری آنکه تاج محل «به عشق همسر ایرانی یک امپراتور» ساخته شده و حاصل «نبوغ معماران ایرانی» است، افزود دولت آمریکا امروز «تمدن ایران را تهدید به نابودی می‌کند و به دیگر تمدن‌ها توهین می‌کند.»
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 242137
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+حساب رسمی کنسولگری جمهوری اسلامی ایران در حیدرآباد هند، در واکنش به بازدید مارکو روبیو، وزیر امور خارجه آمریکا، از تاج محل، دولت آمریکا را به تهدید تمدن ایران متهم کرد.
+
+مارکو روبیو روز دوشنبه چهارم خرداد به همراه همسرش ژانت دوسدبس از تاج محل، بنای مشهور شهر آگرا در هند، بازدید کرد و در برابر این اثر تاریخی عکس گرفت.
+پس از انتشار تصاویر این بازدید، حساب رسمی کنسولگری ایران در حیدرآباد در شبکه اجتماعی اکس نوشت: «اگر روبیو تاریخ یا معماری را می‌شناخت، اینجا برای عکس گرفتن نمی‌ایستاد.»
+کنسولگری ایران در حیدرآباد هند با یادآوری آنکه تاج محل «به عشق همسر ایرانی یک امپراتور» ساخته شده و حاصل «نبوغ معماران ایرانی» است، افزود دولت آمریکا امروز «تمدن ایران را تهدید به نابودی می‌کند و به دیگر تمدن‌ها توهین می‌کند.»
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 242136
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_242136_1779724961.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+الحدث به نقل از منابع آگاه گزارش داد جمهوری اسلامی شرط انتقال اورانیوم با غنای بالا به چین را مطرح کرده است.
+
+بر اساس این گزارش، تهران آمادگی دارد اورانیوم با غنای بالای خود را از کشور خارج کند، اما پیش از نهایی شدن هرگونه توافق با واشینگتن، به دنبال دریافت تضمین‌هایی از چین است.
+
+الحدث همچنین اعلام کرد احتمال دارد فرمانده ارتش پاکستان به دوحه سفر کند.
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## WithYashar — post 12433
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ترامپ با مسخره کردن اوباما و بایدن عکسهایی منتشر کرد که آنها به ایران پول میدهند و مذاکره میکنند، ولی او آنها را منهدم میکند.
+@withyashar
+</div>
+
+## WithYashar — post 12429
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+نمونه یک حرومزاده
+</div>
+
+## FoxNewsTwitter — post 342218
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+BREAKING: Orange County Fire Authority officials announce that the threat of a vapor explosion has been eliminated after crews confirmed the cracked chemical tank’s pressure has been released and temperatures have dropped from 100 to 93 degrees.
+
+Although conditions have improved significantly, officials are emphasizing that evacuation zones remain in effect and ask residents to continue following evacuation orders.
+</div>
+
+## pm_afshaa — post 91468
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴منابع آگاه به العربیه: ایران در مذاکرات شرط کرده اورانیوم غنی‌ شده با درصد بالا فقط به چین منتقل شود
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## IranIntlTV — post 338939
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_338939_1779724962.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+الحدث به نقل از منابع آگاه گزارش داد جمهوری اسلامی شرط انتقال اورانیوم با غنای بالا به چین را مطرح کرده است.
+
+بر اساس این گزارش، تهران آمادگی دارد اورانیوم با غنای بالای خود را از کشور خارج کند، اما پیش از نهایی شدن هرگونه توافق با واشینگتن، به دنبال دریافت تضمین‌هایی از چین است.
+
+الحدث همچنین اعلام کرد احتمال دارد فرمانده ارتش پاکستان به دوحه سفر کند.
+https://iranintl.com/202605252722
+</div>
+
+## alonews — post 122609
+
+<div align="center">
+  <a href="telegram/content/alonews_122609_1779724962.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈خبرنگار الجزیره در تهران: به نظر می‌رسد گره مذاکرات ایران و آمریکا در مسیر حل شدن قرار دارد و ابتکار قطر برای حل اختلاف میان تهران و واشنگتن نقش اساسی در این روند ایفا کرده است؛ به‌طوری که دوحه عملاً یک میانجی بوده، نه صرفاً کمک‌کننده به روند میانجی‌گری.
+‌
+
+🔴 تنها چند ساعت باقی مانده است.
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+---
 📅 بروزرسانی: 1405/03/04 19:22
 ---
 
