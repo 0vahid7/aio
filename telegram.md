@@ -7,6 +7,81 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/05 20:13
+---
+
+## VahidOOnLine — post 242312
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_242312_1779813802.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️فرماندهی مرکزی ایالات متحده (سنتکام) با انتشار بیانیه‌ای در اکس، روز سه‌شنبه، گزارش‌های منتشرشده مبنی بر ازسرگیری کمک‌رسانی (اسکورت) کشتی‌های تجاری در تنگه هرمز را تکذیب کرد و نوشت: «ادعای اخیر برخی رسانه‌ها درباره اینکه نیروی دریایی آمریکا هدایت یا کمک به کشتی‌های تجاری را حین عبور از تنگه هرمز آغاز کرده، نادرست است.» سنتکام در ادامه با رد این ادعاها تاکید کرد: «واقعیت این است که پروژه آزادی ازسر گرفته نشده و نیروهای آمریکایی در حال حاضر هیچ کشتی تجاری را در تنگه هرمز اسکورت نمی‌کنند.» این تکذیب در پی گزارش پیشین روزنامه وال‌استریت‌ژورنال صورت گرفت که ادعا کرده بود نیروی دریایی آمریکا هدایت نفت‌کش‌ها و کشتی‌های سرگردان را از مقابل سواحل ایران آغاز کرده و در نخستین اقدام، یک ابرنفت‌کش یونانی حامل دو میلیون بشکه نفت خام را با موفقیت از این آبراهه استراتژیک عبور داده است.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## WithYashar — post 12581
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+سنتکام: پروژه آزادی از سر گرفته نشده و نیروهای آمریکایی در حال حاضر کشتی‌های تجاری رو از تنگه هرمز همراهی نمی‌کنند.
+@withyashar
+پروژه قایم موشک گویا شروع شده 😂
+</div>
+
+## pm_afshaa — post 91546
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_91546_1779813802.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴وال استریت ژورنال: به گفته مقامات نظامی آمریکا، نیروی دریایی ایالات متحده کمک به عبور کشتی‌ها از تنگه هرمز رو دوباره آغاز کرده. این مقامات گفتن که یک ابرنفتکش یونانی حامل 2 میلیون بشکه نفت خام، هنگام عبور از این آبراه در سواحل عمان، توسط نیروی دریایی آمریکا…
+</div>
+
+## pm_afshaa — post 91545
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_91545_1779813803.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴حمید رسایی، نماینده مجلس:
+بزرگترین خیانت به پیکر مطهر رهبر عزیزمان که هنوز به خاک سپرده نشده امروز رقم خورد؛ دشمن ما کنار آمریکا و اسراییل کسانی هستن که اینترنت رو وصل کردن.
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## IranIntlTV — post 339123
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_339123_1779813804.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+تیتراول با نیوشا صارمی، سه‌شنبه ۵ خرداد
+@iranintltv
+</div>
+
+## Persian_Trend_Official — post 15082
+
+<div align="center">
+  <a href="telegram/content/Persian_Trend_Official_15082_1779813805.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+تصاویری از لاشۀ پهپادی که دیروز با آتش سامانه جديد آرش‌های کمان‌گیر سپاه ساقی شد.
+
+
+👩‍💻@PhantomDirective
+
+
+🆔@persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+---
 📅 بروزرسانی: 1405/03/05 20:04
 ---
 
