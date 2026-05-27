@@ -7,6 +7,165 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/07 02:52
+---
+
+## VahidOOnLine — post 242492
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_242492_1779924179.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️کره شمالی اعلام کرد هرگز از سلاح هسته‌ای خود دست نخواهد کشید و برنامه خلع سلاح هسته‌ای این کشور انجام نخواهد شد.
+به گزارش رویترز، خبرگزاری دولتی کره شمالی به نقل از سخنگوی وزارت خارجه این کشور گزارش داد پیونگ‌یانگ همچنین از ائتلاف امنیتی «کواد» به رهبری آمریکا و مواضع آنچه «خصمانه» علیه کره شمالی و دیگر کشورهای منطقه خواند، انتقاد کرده است.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## WithYashar — post 12759
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+گزارشات تأیید نشده از ترور سردار علی عظمایی، جانشین سردار علیرضا تنگسیری، فرمانده نیروی دریایی سپاه.
+@withyashar
+</div>
+
+## WithYashar — post 12758
+
+
+
+
+## pm_afshaa — post 91698
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴گزارشات تأیید نشده از ترور سردار علی عظمایی، جانشین سردار علیرضا تنگسیری، فرمانده نیروی دریایی سپاه
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 91696
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_91696_1779924180.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+لبنان هم اکنون
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 91695
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴گزارش ها از درگیری میان نیروی دریایی سپاه و نیروی دریایی آمریکا در تنگه هرمز
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 91694
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+https://t.me/proxy?server=195.254.165.4&port=8443&secret=EERighJJvXrFGRMCIMJdCQ==
+
+پروکسی مخصوص دانلود سرعت بالا
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 91693
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+https://t.me/proxy?server=87.248.129.13&port=15&secret=ee1603010200010001fc030386e24c3add63646e2e79656b74616e65742e636f6d
+
+پروکسی متصل سرعت بالا
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 91692
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+vless://be9c1310-a744-4162-a6ee-da63d015c58a@185.143.234.235:2053?type=ws&encryption=none&path=%3Fed%3D2048&host=dl.lexwill.site&security=tls&fp=chrome&alpn=h2%2Chttp%2F1.1&sni=dl.lexwill.site#Lex-ro2272tq
+
+نامحدود سرعت موشکی مخصوص اینستا و یوتیوب
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## FarsiVOA — post 218852
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚡️گزارش جدید بانک مرکزی اروپا از وضعیت بازارهای مالی اروپا
+@FarsiVOA
+</div>
+
+## FarsiVOA — post 218851
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔺یک تبعه آمریکایی در پرونده توطئه برای قتل مسیح علینژاد به ۱۰ سال زندان محکوم شد
+
+▪️وزارت دادگستری آمریکا روز چهارشنبه ۶ خرداد در بیانیه‌ای گفت که جاناتان لودهولت، ساکن استاتن آیلند، «به‌دلیل نقش خود در توطئه تعقیب و قتل یک روزنامه‌نگار و منتقد برجسته حکومت ایران، به زندان محکوم شد.»
+
+⬇️ بیشتر بخوانید:
+https://ir.voanews.com/a/8154602.html
+@FarsiVOA
+</div>
+
+## IranianMinds — post 20915
+
+<div align="center">
+  <a href="telegram/content/IranianMinds_20915_1779924181.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 اسرائیل هم این وسط کلش کیری شد یه ساختمون دیگه رو تو لبنان آورد پایین و یکی دیگه از فرمانده های حزب الله رو ترور کرد.
+
+@IranianMinds
+</div>
+
+## IranianMinds — post 20914
+
+<div align="center">
+  <a href="https://t.me/IranianMinds/20914" target="_blank">📎 Download file</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+سرور فوق العاده پرسرعت و قوی مخصوص اینستا و یوتیوب سرعت فضایی مخصوص تمام اینترنت ها
+
+آموزش اتصال در اندروید
+
+آموزش اتصال در آیفون
+
+حتما شیر بدید بقیه هم متصل شن لطفا دانلود سنگین هم نزنید ❤️‍🔥
+
+@IranianMinds
+</div>
+
+---
 📅 بروزرسانی: 1405/03/07 02:42
 ---
 
