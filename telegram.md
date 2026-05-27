@@ -7,6 +7,35 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/06 06:12
+---
+
+## VahidOOnLine — post 242375
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️ویدیوهای منتشرشده از مراسم حج، شماری از زائران ایرانی را نشان می‌دهد که در جریان برگزاری مناسک، شعارهای علیه آمریکا و اسرائیل سر می‌دهند.
+بیش از یک میلیون و ۵۰۰ هزار زائر، سه‌شنبه پنجم خردادماه، در صحرای عرفات در عربستان سعودی گرد هم آمدند تا مهم‌ترین بخش مناسک حج را به‌جا آورند.
+حج امسال در شرایطی برگزار می‌شود که منطقه خاورمیانه همچنان تحت تاثیر تنش‌ها و پیامدهای جنگ میان آمریکا، اسرائیل و جمهوری اسلامی ایران قرار دارد.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## Persian_Trend_Official — post 15097
+
+<div align="center">
+  <a href="telegram/content/Persian_Trend_Official_15097_1779849748.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+صبحتون بخیر ☕️🤍
+
+📝 Nick
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+---
 📅 بروزرسانی: 1405/03/06 06:02
 ---
 
