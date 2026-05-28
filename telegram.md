@@ -7,6 +7,106 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/08 01:02
+---
+
+## VahidOOnLine — post 242661
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_242661_1780003946.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️دونالد ترامپ، رئیس‌جمهوری آمریکا در گفتگو با شبکه فاکس‌نیوز در پاسخ به سوالی درباره خط قرمز واشنگتن برای اقدام نظامی دوباره اعلام کرد که مرز نهایی و خط قرمز اصلی، توافقی است که برای آمریکا خوب نباشد. ترامپ با بیان اینکه شرایط را زیر نظر دارد و باید دید در آینده چه پیش می‌آید، طرف مقابل را مذاکره‌کنندگانی بسیار خوب و حیله‌گر توصیف کرد، اما تاکید کرد که در نهایت تمامی کارت‌های بازی در دست آمریکا قرار دارد، چرا که واشنگتن پیش از این آن‌ها را از نظر نظامی شکست داده است.
+پیش‌تر، ان‌بی‌سی نیوز به نقل از یک مقام ارشد عرب گزارش داده بود مذاکره‌کنندگان آمریکا و جمهوری اسلامی ایران سه روز پیش در دوحه بر سر مفاد توافق آتش‌بس به تفاهم رسیده‌اند، اما اعلام نهایی آن به تعویق افتاده است. همچنین آکسیوس به نقل از منابع آمریکایی و منطقه‌ای گزارش داد طرفین بر سر یک تفاهم‌نامه ۶۰ روزه برای تمدید آتش‌بس و آغاز گفتگوها درباره برنامه هسته‌ای به توافق رسیده‌اند، اما اجرای آن همچنان نیازمند تایید نهایی دونالد ترامپ است.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## pm_afshaa — post 91800
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+کسی قزوین صدا شنیده!؟
+</div>
+
+## pm_afshaa — post 91799
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+https://t.me/proxy?server=tg.capycore.ru&port=443&secret=27ebe852539fb8ec5f327c73262bb721
+
+پروکسی مخصوص دانلود فیلم و سریال سرعت بالا
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 91798
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+پزشکیان :به جلیلی گفتم توام بیا یه گوشه کارو بگیر کمک کن کشورو درست کنیم. گفت نه من فقط پیشنهاد میدم. گفتم پیشنهاد به چه دردم میخوره اخه عمل میخوام; نخواستیم اصلا
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## FarsiVOA — post 218929
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚡️تقویت نظامی ناتو در بالتیک؛ گوتلاند در خط مقدم بازدارندگی در برابر تهدیدهای روسیه
+@FarsiVOA
+</div>
+
+## FarsiVOA — post 218928
+
+<div align="center">
+  <a href="telegram/content/FarsiVOA_218928_1780003947.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚡️ویدیوی سنتکام از انجام ماموریت ناو هواپیمابر آبراهام لینکلن در حین عبور از «دریای عرب»
+
+@FarsiVOA
+</div>
+
+## alonews — post 123404
+
+<div align="center">
+  <a href="telegram/content/alonews_123404_1780003948.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈نورالدین الدغیر خبرنگار الجزیره در تهران:
+یادداشت تفاهم، حاصل جمعبندی مذاکرات در سطح دیپلماتیک است.
+
+
+🔴برای اجرایی شدن، نیاز به امضای مقامات عالی در تهران و واشنگتن دارد.
+
+
+🔴نیت توافق وجود دارد و انتظار می‌رود که از مرحله نیت به مرحله عمل منتقل شود.
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 123403
+
+<div align="center">
+  <a href="telegram/content/alonews_123403_1780003948.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈ستاد فرماندهی مرکزی آمریکا «سنتکام» شامگاه پنج‌شنبه هفتم خرداد ویدیویی از عملیات پروازی انجام شده از عرشه ناو هواپیمابر ابراهام لینکولن[USS Abraham Lincoln (CVN 72)] در جریان حرکت آن در دریای عرب و پشتیبانی از محاصره دریایی اعمال شده بر بنادر ایران، منتشر کرد.
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+---
 📅 بروزرسانی: 1405/03/08 00:52
 ---
 
