@@ -7,6 +7,40 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/07 07:33
+---
+
+## alonews — post 123194
+
+<div align="center">
+  <a href="telegram/content/alonews_123194_1779940989.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈آمریکا «نهاد مدیریت آبراه خلیج فارس» را تحریم کرد
+
+
+🔴وزارت خزانه‌داری آمریکا اعلام کرد سازمان تازه تأسیس ایرانی «نهاد مدیریت آبراه خلیج فارس» را به فهرست تحریم‌های خود اضافه کرده است.
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 123193
+
+<div align="center">
+  <a href="telegram/content/alonews_123193_1779940990.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈گویا مبدا حمله کویت بوده.
+
+
+🔴سر همین قضیه قیمت نفت هم داره میره بالا.
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+---
 📅 بروزرسانی: 1405/03/07 07:22
 ---
 
