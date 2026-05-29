@@ -7,6 +7,49 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/08 03:52
+---
+
+## VahidOOnLine — post 242686
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_242686_1780014152.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+حسن پورقربان، فرمانده ناحیه مقاومت بسیج الغدیر بخش لواسان شمیرانات، از افزایش کشف و ضبط گیرنده‌های اینترنت ماهواره‌ای استارلینک در این منطقه خبر داد و تاکید کرد جمهوری اسلامی قادر به رصد این تجهیزات در نقاط مختلف و دورافتاده است.
+پورقربان گفت: «استفاده از شبکه‌های ماهواره‌ای غیرمجاز مانند استارلینک در مناطق کوهستانی، ویلاهای دورافتاده یا زیرزمین ساختمان‌ها، به‌هیچ‌وجه از دید سامانه‌های رصد الکترونیک ما پنهان نمی‌ماند و تجهیزات به‌ کار گرفته‌شده قادر به شناسایی الگوی ترافیک، موقعیت جغرافیایی با دقت بالا و حتی تخمین زمان‌های فعال بودن این دستگاه‌ها است.»
+
+
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## FoxNewsTwitter — post 342375
+
+<div align="center">
+  <a href="telegram/content/FoxNewsTwitter_342375_1780014153.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+FOX NEWS REPORT: The US and Iran reached a tentative ceasefire deal that would last for 60 days, pending President Trump's approval, @BillMelugin_ reports.
+</div>
+
+## IranIntlTV — post 339501
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_339501_1780014155.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+حسن پورقربان، فرمانده ناحیه مقاومت بسیج الغدیر بخش لواسان شمیرانات، از افزایش کشف و ضبط گیرنده‌های اینترنت ماهواره‌ای استارلینک در این منطقه خبر داد و تاکید کرد جمهوری اسلامی قادر به رصد این تجهیزات در نقاط مختلف و دورافتاده است.
+پورقربان گفت: «استفاده از شبکه‌های ماهواره‌ای غیرمجاز مانند استارلینک در مناطق کوهستانی، ویلاهای دورافتاده یا زیرزمین ساختمان‌ها، به‌هیچ‌وجه از دید سامانه‌های رصد الکترونیک ما پنهان نمی‌ماند و تجهیزات به‌ کار گرفته‌شده قادر به شناسایی الگوی ترافیک، موقعیت جغرافیایی با دقت بالا و حتی تخمین زمان‌های فعال بودن این دستگاه‌ها است.»
+
+
+https://iranintl.com/202605293259
+</div>
+
+---
 📅 بروزرسانی: 1405/03/08 03:42
 ---
 
