@@ -7,6 +7,72 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/08 16:12
+---
+
+## DEJradio — post 5100
+
+<div align="center">
+  <a href="telegram/content/DEJradio_5100_1780058547.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🎥
+🔥 مردم نباید از حکومتشان بترسند؛ حکومت‌ها باید از مردم بترسند!
+
+#ایران_را_پس_میگیریم
+@DEJradio
+</div>
+
+## IranIntlTV — post 339570
+
+<div align="center">
+  <a href="https://t.me/IranintlTV/339570" target="_blank">📎 Download file</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🎧نسخه صوتی اخبار نیم‌روزی | جمعه ۸ خرداد
+@iranintlTV
+</div>
+
+## IranianMinds — post 21011
+
+<div align="center">
+  <img src="telegram/content/IranianMinds_21011_1780058549.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ترامپ بعد دیدن این تصویر دستور عقب نشینی سریع و کامل ارتش آمریکا از خاورمیانه و هزار کیلومتری اطراف خاورمیانه رو داد.
+
+@IranianMinds
+</div>
+
+## BBCPersian — post 282336
+
+<div align="center">
+  <a href="telegram/content/BBCPersian_282336_1780058549.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔻گروه‌های امداد در لائوس پنج روستایی را که پس از بارندگی‌های شدید و رانش زمین به مدت یک هفته در غاری سیلابی گرفتار شده بودند، زنده پیدا کردند.
+
+به گفته تیم‌های نجات لائوسی و تایلندی که در این عملیات مشارکت داشتند، دو نفر دیگر از اعضای این گروه همچنان مفقود هستند.
+
+این افراد چهارشنبه هفته گذشته برای جست‌وجوی ذخایر طلا و شکار حیوانات وحشی وارد غار شده بودند، اما پس از مسدود شدن دهانه ورودی بر اثر سیلاب، نتوانستند خارج شوند.
+
+در عملیات امدادرسانی، گروهی از متخصصان باتجربه در عملیات نجات از غار، از جمله اعضای تیم معروف تایلندی که در سال ۲۰۱۸ یک گروه دانش‌آموز را نجات داده بودند، حضور داشتند.
+@BBCPersian
+</div>
+
+## alonews — post 123497
+
+<div align="center">
+  <a href="telegram/content/alonews_123497_1780058551.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈نیروی زمینی ارتش اسرائیل به دروازه های شهر نبطیه، دومین شهر بزرگ جنوب لبنان رسیده است.
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+---
 📅 بروزرسانی: 1405/03/08 16:02
 ---
 
