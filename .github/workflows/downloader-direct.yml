@@ -175,7 +175,7 @@ jobs:
 
           # Move failed log if any
           if [ -s "$FAILED_FILE" ]; then
-            RAND_FAIL=$(tr -dc 'a-z' </dev/urandom | head -c5)
+            RAND_FAIL=$(mktemp -u XXXXX)
             FAIL_NAME="links-failed-${RAND_FAIL}.txt"
             mv "$FAILED_FILE" "${OUTPUT_DIR}/$FAIL_NAME"
             echo "Created failure report: ${OUTPUT_DIR}/$FAIL_NAME"
@@ -189,7 +189,7 @@ jobs:
             mkdir -p "$BUNDLE_DIR"
             cp "$DOWNLOAD_DIR"/* "$BUNDLE_DIR/" 2>/dev/null || true
             if [ -n "$(ls -A "$BUNDLE_DIR" 2>/dev/null)" ]; then
-              RAND_BUNDLE=$(tr -dc 'a-z' </dev/urandom | head -c5)
+              RAND_BUNDLE=$(mktemp -u XXXXX)
               BUNDLE_ZIP="bundle_${RAND_BUNDLE}.zip"
               echo "Creating bundle: $BUNDLE_ZIP"
               if [ "$UPLOAD_METHOD" = "release" ]; then
@@ -376,7 +376,7 @@ jobs:
             exit 0
           fi
 
-          RAND5=$(tr -dc 'a-z' </dev/urandom | head -c5)
+          RAND5=$(mktemp -u XXXXX)
           TAG="direct-downloader-${RAND5}"
           echo "Creating release tag: $TAG"
 
