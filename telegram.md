@@ -7,6 +7,121 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/09 19:53
+---
+
+## VahidOOnLine — post 242931
+
+<div align="center">
+  <a href="telegram/content/VahidOOnLine_242931_1780158203.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️در جریان مراسم روز نیروهای مسلح اسپانیا، یک اتفاق غیرمنتظره توجه‌ها را به خود جلب کرد؛ پرچم اسپانیا در حین اجرای مراسم دچار اختلال شد و به‌طور ناگهانی سقوط کرد.
+در ویدیوی منتشرشده، واکنش آرام و خونسرد فیلیپه ششم، پادشاه اسپانیا، به این اتفاق مورد توجه قرار گرفته و در شبکه‌های اجتماعی بازتاب گسترده‌ای داشته است.
+این مراسم که هر سال با حضور مقامات ارشد و نمایش توان نظامی برگزار می‌شود، امسال با این اتفاق غیرمنتظره به یکی از سوژه‌های رسانه‌ای تبدیل شد.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## pm_afshaa — post 91901
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_91901_1780158204.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴ان‌بی‌سی نیوز: احتمال داره ایران در جریان درگیری‌های اخیر، از یک موشک ساخت چین برای سرنگونی یک جنگنده F-15E استرایک ایگل آمریکا استفاده کرده باشد.
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## DEJradio — post 5157
+
+<div align="center">
+  <a href="telegram/content/DEJradio_5157_1780158205.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🚨📢 نشست امنیتی «دریای سیاه» در اودسا
+شاهزاده رضا پهلوی خطاب به رهبران غرب:
+رژیم ایران را مدیریت نکنید، تمامش کنید
+
+شاهزاده رضا پهلوی روز شنبه نهم خرداد ۱۴۰۵ در نشست امنیتی «دریای سیاه» در اودسا خطاب به رهبران غرب گفت «رژیم تروریستی جمهوری اسلامی را مدیریت نکنید؛ به آن پایان دهید.»
+او با هشدار درباره تهدیدهای مشترک علیه جهان آزاد تاکید کرد: «محور مسکو و تهران یک دشمن هماهنگ برای همه ماست و باید با قدرت، انسجام و قاطعیت با آن مقابله شود.»
+
+پهلوی همچنین با انتقاد از سیاست توافق و امتیازدهی به حکومت تهران گفت: «هیچ‌یک از توافق‌هایی که تاکنون با جمهوری اسلامی انجام شده، همان‌گونه که توافق‌های مشابه با اتحاد جماهیر شوروی نتوانستند مشکل را حل کنند، راه‌حل پایدار نبوده‌اند.»
+
+#شاهزاده_رضا_پهلوی #جمهوری_اسلامی
+@DEJradio
+</div>
+
+## IranIntlTV — post 339763
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_339763_1780158205.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+جمهوری اسلامی از ایجاد نهادی می‌گوید که در آن کشتی‌ها برای عبور از تنگه هرمز باید از نهاد مورد نظر مجوز بگیرند. ایالات متحده و برخی منتقدان این سازوکار را خطرناک‌ ارزیابی کرده‌اند.
+مهدی بیگی، عضو تحریریه ایران‌اینترنشنال، در «پیوست» به این موضوع می‌پردازد
+@iranintltv
+</div>
+
+## FarsiVOA — post 219093
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔺روبیو: تام باراک همچنان در مورد سوریه و عراق نقش محوری ایفا خواهد کرد
+
+▪️مارکو روبیو، وزیر امور خارجه آمریکا، اعلام کرد تام باراک، سفیر ایالات متحده در ترکیه، با وجود پایان یافتن نقشش به‌عنوان نماینده ویژه آمریکا در امور سوریه، همچنان در سیاست‌گذاری آمریکا درباره سوریه و عراق نقش مهمی ایفا خواهد کرد.
+
+⬇️ بیشتر بخوانید:
+
+https://ir.voanews.com/a/rubio-backs-tom-barrack-regional-role/8155576.html/?nocach=1
+</div>
+
+## FarsiVOA — post 219092
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+گفت‌و‌گو با دکتر بابک خطی، پزشک و فعال سیاسی، درباره مهاجرت پرستاران و پزشکان تیر خلاص به بخش درمان ایران
+</div>
+
+## IranianMinds — post 21077
+
+<div align="center">
+  <img src="telegram/content/IranianMinds_21077_1780158207.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+@IranianMinds
+</div>
+
+## alonews — post 123764
+
+<div align="center">
+  <a href="telegram/content/alonews_123764_1780158207.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈حمله‌های شدیدِ ارتش اسرائیل ساعتی پیش، به جنوب لبنان
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 123763
+
+<div align="center">
+  <a href="telegram/content/alonews_123763_1780158208.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈وزیر جنگ آمریکا: دوستی واقعی بین واشنگتن و اسلام‌آباد در حال شکل‌گیری است؛ این مدیون رهبری پاکستان است که به تلاش‌ها برای مذاکره با ایران کمک کرده
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+---
 📅 بروزرسانی: 1405/03/09 19:43
 ---
 
