@@ -69,7 +69,7 @@ jobs:
           echo "NUM_URLS=$NUM" >> $GITHUB_OUTPUT
 
       # ── VPN SETUP (identical to Spotify/YouTube) ──
-      - name: '🔒 Set up WireGuard VPN (if enabled)'
+      - name: 'Set up WireGuard VPN (if enabled)'
         id: vpn
         shell: bash
         run: |
@@ -78,7 +78,7 @@ jobs:
 
           if [ "$VPN_ENABLED" = "true" ]; then
             if [ -z "${{ secrets.WG_CONFIG }}" ]; then
-              echo "⚠️ VPN enabled but WG_CONFIG secret is empty – VPN disabled for this run."
+              echo "VPN enabled but WG_CONFIG secret is empty – VPN disabled for this run."
               echo "vpn_available=false" >> $GITHUB_OUTPUT
               exit 0
             fi
@@ -96,10 +96,10 @@ jobs:
 
             echo "→ Bringing up wg0..."
             if sudo wg-quick up wg0; then
-              echo "✅ WireGuard VPN connected."
+              echo "WireGuard VPN connected."
               echo "vpn_available=true" >> $GITHUB_OUTPUT
             else
-              echo "⚠️ Failed to bring up WireGuard – VPN disabled."
+              echo "Failed to bring up WireGuard – VPN disabled."
               sudo wg-quick down wg0 2>/dev/null || true
               echo "vpn_available=false" >> $GITHUB_OUTPUT
             fi
