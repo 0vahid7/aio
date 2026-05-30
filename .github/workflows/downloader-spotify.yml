@@ -444,6 +444,13 @@ jobs:
           done
           echo "::endgroup::"
 
+      # ─── NEW STEP: Tear down VPN before upload ───
+      - name: Disconnect VPN for uploads
+        if: steps.vpn.outputs.vpn_available == 'true'
+        run: |
+          echo "→ Bringing down WireGuard to use runner's native internet for uploads"
+          sudo wg-quick down wg0
+          
       - name: Collect Failed URLs
         if: always()
         shell: bash
