@@ -7,6 +7,205 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/10 19:43
+---
+
+## VahidOOnLine — post 243073
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_243073_1780244002.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+فرماندهی مرکزی ایالات متحده (سنتکام) با انتشار تصاویری، جزئیاتی از فعالیت یک ناو هواپیمابر آمریکایی که اکنون نزدیک ایران هستند منتشر و آن را «شهری روی دریا» توصیف کرد.
+
+در حالی که به دلیل آتش‌بس جاری با جمهوری اسلامی، عملیات‌ها محدودتر شده‌اند، مقامات آمریکایی می‌گویند نیروی دریایی ایالات متحده همچنان آماده است در صورت نیاز حملات را افزایش دهد.
+
+سنتکام نوشت: «یک ناو هواپیمابر نیروی دریایی آمریکا در اصل یک شهر مستقل روی دریاست. با طولی حدود سه زمین فوتبال و بیش از ۵۰۰۰ ملوان در آن، برای اینکه عملیات به‌طور روان پیش برود، حضور و همکاری همه نیروها—چه در عرشه و چه زیر آن—ضروری است.»
+
+ویدئوهای منتشرشده در پستی در شبکه اجتماعی ایکس نشان می‌دهد ملوانان در حال انجام وظایف مختلف روی این ناو هستند؛ از تهیه غذا گرفته تا هدایت هواپیماها روی عرشه.
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## WithYashar — post 13067
+
+<div align="center">
+  <img src="telegram/content/WithYashar_13067_1780244003.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+یک کشتی ایرانی به نام «IRGC TOLL COLLECT» به معنی « اخذ عوارض توسط سپاه پاسداران » در تنگه هرمز ظاهر شده است
+@withyashar
+مفتبر جاده هرمزه 🤣 تلکه بگیر سر گردنه
+</div>
+
+## WithYashar — post 13066
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+یاشار همین الان مرکز تهران دو صدا مهیب انفجار مانند ۱۹:۳۲
+@withyashar
+</div>
+
+## WithYashar — post 13065
+
+
+
+
+## FoxNewsTwitter — post 342449
+
+<div align="center">
+  <a href="telegram/content/FoxNewsTwitter_342449_1780244004.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+Police hold the line as anti-ICE agitators try breaking the barricade at Delaney Hall to push their way into the New Jersey detention center.
+</div>
+
+## IranIntlTV — post 339909
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_339909_1780244006.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ایران‌اینترنشنال به اسنادی محرمانه دست یافته که نشان می‌دهد چین از طرق شرکت‌هایی در خاک این کشور، ترکیه و امارات، به سپاه پاسداران در تامین مواد شیمیایی برای ساخت موشک بالستیک کمک می‌کند. این همکاری در ازای نفت و از طریق ستاد پورجعفری سپاه انجام می‌شود.
+
+گزارشی از مجتبا پورمحسن
+@iranintltv
+</div>
+
+## IranIntlTV — post 339908
+
+<div align="center">
+  <a href="https://t.me/IranintlTV/339908" target="_blank">📎 Download file</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🎧نسخه صوتی اخبار شبانگاهی | یکشنبه ۱۰ خرداد
+@iranintlTV
+</div>
+
+## FarsiVOA — post 219184
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+حسن شریعتمداری در عمق میدان: تجربه نشان داده که شخصیت و رهبرِ کاریزماتیک خودش دیکتاتور بعدی خواهد بود. همه را با همه تفاوت‌ها باید دعوت کرد
+</div>
+
+## FarsiVOA — post 219183
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+در گفت‌وگو با حسن هاشمیان به عبور ارتش اسرائیل از رود لیتانی و تصرف قلعه راهبردی بوفور (یا بوفورت که نام عربی آن «شقیف» است) پرداختیم. او می‌گوید این پیشروی، «که بزرگ‌ترین شکستی است که جمهوری اسلامی به جهان اسلام تقدیم کرد» معادلات لبنان و مذاکرات منطقه‌ای را به زیان جمهوری اسلامی تغییر می‌دهد.
+</div>
+
+## DW_Farsi — post 125351
+
+<div align="center">
+  <img src="telegram/content/DW_Farsi_125351_1780244010.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔶 تصرف قلعه بوفور از سوی اسرائیل؛ فرانسه خواستار نشست اضطراری شورای امنیت شد
+ 
+ژان-نوئل بارو، وزیر خارجه فرانسه، اعلام کرد پاریس پس از تصرف قلعه بوفور در لبنان توسط ارتش اسرائیل، خواستار برگزاری نشست اضطراری شورای امنیت سازمان ملل شده است. او گفت فرانسه حق اسرائیل برای دفاع از خود را به رسمیت می‌شناسد، اما ادامه عملیات نظامی اسرائیل در لبنان و گسترش حضور آن در خاک این کشور را غیرقابل توجیه می‌داند.
+ 
+به گزارش العربیه انگلیسی، بارو در این باره گفت هیچ چیز نمی‌تواند ادامه عملیات نظامی اسرائیل در لبنان و عمیق‌تر شدن اشغال خاک این کشور را توجیه کند.
+ 
+دنی دانون، نماینده اسرائیل در سازمان ملل، در واکنش به درخواست فرانسه گفت بحث واقعی در شورای امنیت باید درباره شکست مداوم در اجرای قطعنامه ۱۷۰۱ باشد؛ قطعنامه‌ای که پس از جنگ سال ۲۰۰۶ میان اسرائیل و حزب‌الله تصویب شد و بر اساس آن، حزب‌الله باید به شمال رود لیتانی عقب می‌رفت.
+ 
+او گفت حزب‌الله سال‌هاست قطعنامه‌های سازمان ملل را آشکارا نقض کرده، با حمایت ایران مسلح شده و تهدیدی مستقیم برای غیرنظامیان اسرائیلی و ثبات منطقه ایجاد کرده است.
+ 
+@dw_farsi
+</div>
+
+## Persian_Trend_Official — post 15409
+
+<div align="center">
+  <img src="telegram/content/Persian_Trend_Official_15409_1780244011.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+رسانه‌های اسرائیلی: یک پایگاه نظامی در شمال هایمک (مرج بن عامر) هدف پهپادی قرار گرفت.
+
+تا به این لحظه ۶ زخمی در «بیت هیل» از جمله ۳ نفر در وضعیت بحرانی قرار دارند
+هلیکوپترهای ارتش در حال انتقال مجروحان در میان نیروهای ارتش در نزدیکی «بیت هلیل» هستند.
+
+
+👺Phantom
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## Persian_Trend_Official — post 15408
+
+<div align="center">
+  <img src="telegram/content/Persian_Trend_Official_15408_1780244012.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🇮🇷
+🇮🇷 حملات موشکی سپاه به سمت اقلیم کردستان، عراق. 
+🚀
+🚀
+🚀
+🚀 
+👺Phantom 📌 @persian_trend_official پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## IranianMinds — post 21151
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 اسکات بسنت، وزیر خزانه‌داری آمریکا: فشارها بر ایران و جلوگیری از صادرات نفت از جزیره خارک ادامه دارد.
+
+@IranianMinds
+</div>
+
+## IranianMinds — post 21150
+
+<div align="center">
+  <img src="telegram/content/IranianMinds_21150_1780244013.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+استایل جدید و متفاوت صابر ابر
+
+@IranianMinds
+</div>
+
+## IranianMinds — post 21149
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+کانالی که همیشه در مسیر ورشکست کردن سایت های شرطبندی حرکت کرده! 😈
+
+آمار ثابت 90 درصد برد ✅
+فقط کافیه چند روز فرم هاش رو دنبال کنید...
+⚽ @Tipster_Mafiaa   @Tipster_Mafiaa
+⚽ @Tipster_Mafiaa      @Tipster_Mafiaa
+</div>
+
+## IranianMinds — post 21148
+
+<div align="center">
+  <img src="telegram/content/IranianMinds_21148_1780244013.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+میکس عالی برد شد🖤☑️
+✔️@Tipster_Mafiaa
+</div>
+
+## alonews — post 123996
+
+<div align="center">
+  <a href="telegram/content/alonews_123996_1780244014.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈یک کشتی ایرانی به نام «IRGC TOLL COLLECT» در تنگه هرمز ظاهر شده است
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+---
 📅 بروزرسانی: 1405/03/10 19:33
 ---
 
