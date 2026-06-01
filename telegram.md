@@ -7,6 +7,188 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/11 17:43
+---
+
+## IranIntlTV — post 340059
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_340059_1780323208.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+رسانه‌های عراقی در گزارشی از ارسال پیام رهبر جمهوری اسلامی از طریق اسماعیل قاآنی، فرمانده نیروی قدس سپاه پاسداران، برای برخی گروه‌های مسلح عراقی خبر دادند.
+
+تروسکه صادقی، خبرنگار ایران‌اینترنشنال، گزارش می‌دهد
+@iranintltv
+</div>
+
+## IranIntlTV — post 340058
+
+<div align="center">
+  <a href="https://t.me/IranintlTV/340058" target="_blank">📎 Download file</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🎧نسخه صوتی اخبار نیمروزی | دوشنبه ۱۱ خرداد
+@iranintlTV
+</div>
+
+## IranIntlTV — post 340057
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_340057_1780323210.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+‌
+🔻فهرست اعلام‌شده تیم ملی برای جام جهانی از سوی قلعه‌نویی یک نکته قابل توجه دارد. روزبه چشمی در شرایطی در جمع ۲۶ بازیکن نهایی قرار گرفته که امیرمهدی علوی، سخنگوی فدراسیون فوتبال، پیش‌تر در گفت‌وگو با صداوسیما اعلام کرده بود این بازیکن به دلیل مصدومیت جام جهانی را از دست داده است.
+
+🔹با این حال، نام هافبک استقلال در فهرست نهایی تیم ملی قرار گرفت تا وضعیت آمادگی جسمانی او و دلیل تناقض میان اظهارات سخنگوی فدراسیون فوتبال و فهرست نهایی تیم ملی به یکی از پرسش‌های مطرح‌شده پس از اعلام اسامی بازیکنان تبدیل شود.
+
+🔹همچنین چشمی در فصلی که گذشت در ۶ بازی به دلیل مصدومیت نتوانست استقلال را همراهی کند.
+
+🔹به نظر شما چرا روزبه چشمی مصدوم به تیم ملی دعوت شد؟
+
+🔹برای شرکت در این نظرخواهی، به صفحه اینستاگرام ایران اینترنشنال ورزشی مراجعه کنید؛👇🏽
+https://www.instagram.com/p/DZC8IlPFVuH/
+</div>
+
+## BBCPersian — post 282574
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔻ارتش آمریکا: دو موشک بالستیک ایران را در آسمان کویت رهگیری کردیم
+
+ارتش آمریکا می‌گوید دو موشک بالستیک ایران را که به سمت نیروهایش در کویت شلیک شده بود، «با موفقیت» رهگیری کرده است.
+
+بر اساس بیانیه فرماندهی مرکزی آمریکا در منطقه، سنتکام، در شبکه ایکس، این حمله بامداد امروز ساعت ۶:۳۰ به وقت تهران انجام گرفته است.
+
+به گفته سنتکام هیچ یک از پرسنل آمریکا در این حمله آسیبی ندیدند.
+
+در این بیانیه آمده است: «فرماندهی مرکزی آمریکا هوشیارانه به حفاظت از نیروهایمان در برابر اقدامات خصمانه ایرانی‌ها ادامه می‌دهد و همزمان از ادامه آتش‌بس حملیت می‌کند.»
+
+ساعاتی پیش سپاه پاسداران گفته بود که در پاسخ به حمله آمریکا به «یک دکل مخابراتی در جزیره سیریک» نیروهایش «پایگاه هوایی مبدا» را هدف قرار داده‌اند.
+
+ارتش آمریکا هم قبل از آن اعلام کرده بود که در پاسخ به «اقدامات خصمانه» ایران از جمله سرنگون کردن یک پهپاد آمریکایی، «مراکز راداری و مراکز فرماندهی و کنترل پهپادهای ایران در شهر گروگ و جزیره قشم» را هدف حمله قرار داده است.
+
+سپاه پاسداران پنج‌شنبه گذشته گفته بود که پس از حمله آمریکا به «نقطه‌ای در حاشیه فرودگاه بندرعباس با پرتابه‌های هوایی، پایگاه هوایی آمریکایی مبدا» هدف حمله قرار گرفته است.
+
+خبرگزاری بلومبرگ گزارش داد که پنج نفر پرسنل نظامی و پیمانکار آمریکایی در برخورد بقایای موشک بالستیک فاتح-۱۱۰ ایران به پایگاه هوایی علی السالم در کویت زخمی شدند و به دو پهپاد هم آسیب وارد شده است.
+
+https://bbc.in/4xgsxFw
+@BBCPersian
+</div>
+
+## Dirty_Kids — post 390748
+
+<div align="center">
+  <img src="telegram/content/Dirty_Kids_390748_1780323211.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ارتش اسرائیل هشدارهای تخلیه برای ضاحیه بیروت را صادر کرده است.
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 390747
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 تسنیم:
+ایران خواستار توقف کامل تمام عملیات‌ها در غزه و لبنان برای از سرگیری مذاکرات با آمریکا است.
+
+همچنین ایران به میانجی ها اعلام کرده است که آماده است تنگه هرمز و همچنین تنگه باب المندب را به طور کامل ببندد.
+
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 390741
+
+<div align="center">
+  <a href="telegram/content/Dirty_Kids_390741_1780323212.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+اینها به خودشون هم رحم نمیکنند
+عرزشیایی که گوه مذکراتو میخورن میگیرن کتک میزنن میندازن بیرون از تجمع 😂
+
+
+@Dirty_Kids 👻
+</div>
+
+## alonews — post 124216
+
+<div align="center">
+  <a href="telegram/content/alonews_124216_1780323213.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈 افزایش شدید نفت برنت ادامه دارد: عبور از ۹۷ دلار!
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 124215
+
+<div align="center">
+  <a href="telegram/content/alonews_124215_1780323213.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈تجمع فعلی هواپیماهای آمریکایی در فرودگاه بن گوریون در تل‌آویو، اسرائیل. 
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 124214
+
+<div align="center">
+  <a href="telegram/content/alonews_124214_1780323213.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈حزب‌الله فیلمی منتشر کرد که نشان می‌دهد یک پهپاد FPV دیروز یک سرباز ارتش اسرائیل را در حوالی قلعه بوفورت در جنوب لبنان هدف قرار داده است
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 124213
+
+<div align="center">
+  <a href="telegram/content/alonews_124213_1780323215.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈قیمت نفت آمریکا بیش از ۸٪ افزایش یافت و به ۹۴ دلار در هر بشکه رسید
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 124212
+
+<div align="center">
+  <img src="telegram/content/alonews_124212_1780323216.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+طبق تحقیقات جدید، سینگل بودن خطر مرگ رو ۲ برابر افزایش میده!
+
+[@AloTweet]
+</div>
+
+## alonews — post 124211
+
+<div align="center">
+  <a href="telegram/content/alonews_124211_1780323216.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+💔جاویدنام ۱۴ ساله امیرمحمد شاه کرمی
+
+
+🤔عرزشی های حرام زاده شیطان پیش شما باید درس پس بده
+
+
+✅@AloNews
+</div>
+
+---
 📅 بروزرسانی: 1405/03/11 17:34
 ---
 
