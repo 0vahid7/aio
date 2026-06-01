@@ -7,6 +7,89 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/12 00:43
+---
+
+## VahidOOnLine — post 243284
+
+<div align="center">
+  <a href="telegram/content/VahidOOnLine_243284_1780348417.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️مهدی تاج، رئیس فدراسیون فوتبال، در گفتگو با صداوسیما، با اشاره به هزینه‌های سنگین ارزی و دشواری‌های هماهنگ کردن بازی‌های تدارکاتی برای تیم ملی اعلام کرد: «ما ۱۰۰ هزار دلار به مالی دادیم که بیاید. پول هواپیمایشان را دادیم، پول هتلشان را هم دادیم. در این شرایط بازی هماهنگ کردن خیلی سخت است». بر اساس گزارش‌ها، تیم ملی که تاکنون موفق به بازی با هیچ‌کدام از تیم‌های راه‌یافته به جام جهانی نشده و پس از لغو مسابقات با اسپانیا، پرتغال، مقدونیه و آنگولا، حتی ناچار به انجام بازی درون‌تیمی و دیدار با گامبیا (تیم ۱۱۶ دنیا) شده بود، قرار است روز پنجشنبه ۱۴ خرداد در آنتالیا به مصاف مالی برود.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## WithYashar — post 13214
+
+
+
+
+## WithYashar — post 13213
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+قالیباف در تماس تلفنی با همتای لبنانی:
+مصمم هستیم در سراسر لبنان آتش بس برقرار کنیم. در دو روز گذشته به طور جدی به دنبال توقف حملات اسرائیل بودیم. اگر جنایات اسرائیل در لبنان ادامه پیدا کنه، مذاکرات رو متوقف می‌کنیم و در مقابل آن می‌ایستیم.
+@withyashar
+</div>
+
+## pm_afshaa — post 92077
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_92077_1780348418.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴قالیباف در تماس تلفنی با همتای لبنانی:
+مصمم هستیم در سراسر لبنان آتش بس برقرار کنیم. در دو روز گذشته به طور جدی به دنبال توقف حملات اسرائیل بودیم. اگر جنایات اسرائیل در لبنان ادامه پیدا کنه، مذاکرات رو متوقف می‌کنیم و در مقابل آن می‌ایستیم.
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 92076
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_92076_1780348418.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴سخنگوی ارتش اسرائیل:
+در پی هشدارهایی که چندی پیش در منطقه متولا فعال شد، یک پرتاب در نزدیکی نیروهای ارتش اسرائیل که در جنوب لبنان فعال بودند سقوط کرد، تلفات جانی نداشت.
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## DEJradio — post 5234
+
+<div align="center">
+  <a href="telegram/content/DEJradio_5234_1780348419.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🚨
+🔸 محل جلسه خامنه‌ای و فرماندهان ارشد چگونه لو رفت؟
+
+#موشعلی #حذف_هدفمند
+@DEJradio
+</div>
+
+## FarsiVOA — post 219316
+
+<div align="center">
+  <a href="telegram/content/FarsiVOA_219316_1780348421.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚡️گزارش نرگس صبا در برنامه تفسیر خبر از مقایسه نمودارهای قیمت جهانی نفت و تنش آفرینی سپاه در تنگه هرمز
+@FarsiVOA
+</div>
+
+---
 📅 بروزرسانی: 1405/03/12 00:33
 ---
 
