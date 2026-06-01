@@ -7,6 +7,144 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/11 22:44
+---
+
+## pm_afshaa — post 92063
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_92063_1780341241.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴سفارت لبنان در واشنگتن:
+دولت لبنان در دور کردن حزب‌الله از تشدید تنش‌های بیشتر موفق عمل کرد.
+
+ترامپ به سفیر ما اعلام کرد که نتانیاهو با آتش‌بس موافقت کرده.
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 92062
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_92062_1780341242.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴کاتز، وزیر دفاع اسرائیل: آمریکا ما رو از دفاع از شهرهای شمالی باز نمی‌دارد و به هر جایی که در لبنان لازم باشه می‌رسیم.
+
+ترامپ معادله‌ای رو که ما تعیین کردیم رو پذیرفته است؛ اینکه شلیک به جوامع ما به معنای بمب‌گذاری در بیروت است. معنای اظهارات او همین است.
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## Shin_Persian — post 6375
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Shin ✓ @hey_itsmyturn Mon, 01 Jun 2026 19:02:58 UTC Regime media report last night 2 IRGC's Basij terrorists were killed following the detonation of UXO in a "military position" in Qom Province 1. Hossein Ramezanian Fordoii 2. Mohammad Oveisi Fordoii …
+</div>
+
+## FarsiVOA — post 219309
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔺ترامپ از توقف حملات متقابل میان اسرائیل و حزب‌الله لبنان خبر داد
+
+◾️دونالد ترامپ رئیس‌جمهوری ایالات متحده اطلاع داد که اسرائیل و حزب‌الله لبنان موافقت کردند، حملات علیه یکدیگر را متوقف کنند.
+
+⬇️ بیشتر بخوانید:
+https://ir.voanews.com/a/lebanon-israel-hezbollah-ceasefire-iran-/8156156.html
+@FarsiVOA
+</div>
+
+## FarsiVOA — post 219308
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔺آمریکا عواید سکه‌های یادبود جام جهانی ۲۰۲۶ را به فرزندان نظامیان اختصاص می‌دهد
+
+◾️وزارت خزانه‌داری ایالات متحده و ضرابخانه آمریکا روز دوشنبه ۱۱ خرداد اعلام کردند که برنامه تولید سکه‌های یادبود جام جهانی فوتبال ۲۰۲۶ آغاز خواهد شد، و تمامی درآمدهای اضافی حاصل از فروش این سکه‌ها به برنامه‌های فوتبال جوانان برای فرزندان خانواده‌های نظامیان آمریکایی اختصاص می‌یابد.
+
+⬇️ بیشتر بخوانید:
+
+https://ir.voanews.com/a/us-treasury-us-mint-launch-fifa-coins-with-all-proceeds-to-military-families-youth-soccer/8156126.html
+</div>
+
+## DW_Farsi — post 125396
+
+<div align="center">
+  <a href="telegram/content/DW_Farsi_125396_1780341242.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🎥 هجوم ملخ‌ها به ایران
+
+تصاویر منتشرشده در شبکه‌های اجتماعی از حضور گسترده ملخ‌ها در مشهد خبر می‌دهد. همزمان، خبرگزاری تسنیم، نزدیک به حکومت، از "هجوم ملخ‌های مراکشی" به شرق ایران و تهدید معیشت هزاران خانوار گزارش داده است.
+@dw_farsi
+</div>
+
+## RadioFarda — post 157788
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ترامپ می‌گوید مذاکره با جمهوری اسلامی «با سرعت» ادامه دارد
+
+🔸رئیس جمهور آمریکا روز دوشنبه در پیامی در شبکه اجتماعی خود نوشت که مذاکره کشورش با حکومت ایران «با سرعت ادامه دارد».
+
+🔸این پیام پس از آن منتشر شد که جمهوری اسلامی تهدید کرد که در صورت ادامه حملات اسرائیل به لبنان «تبادل پیام با آمریکا متوقف می‌شود».
+
+🔸ترامپ در گفت‌وگو با خبرنگاران از تعلیق مذاکره با ایران اظهار بی‌اطلاعی کرد، اما تماسی تلفنی با نخست وزیر اسرائیل برقرار کرد که به توقف حملات به لبنان انجامید.
+
+@RadioFarda
+</div>
+
+## IranianMinds — post 21209
+
+<div align="center">
+  <img src="telegram/content/IranianMinds_21209_1780341244.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+سیستم جدید دوربینی که توی آمریکا داره استفاده میشه :))
+
+@IranianMinds
+</div>
+
+## alonews — post 124305
+
+<div align="center">
+  <a href="telegram/content/alonews_124305_1780341245.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈سفارت لبنان در واشنگتن: دولت لبنان در دور کردن لبنان از تشدید تنش‌های بیشتر موفق عمل کرد
+
+
+🔴ترامپ به سفیر ما اعلام کرد که نتانیاهو با آتش‌بس موافقت کرده است
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 124304
+
+<div align="center">
+  <a href="telegram/content/alonews_124304_1780341245.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈دونالد ترامپ رئیس جمهوری آمریکا برغم عدم مشارکت ناتو در حمله به ایران، بار دیگر از اعضای این پیمان خواست درباره تهران به او کمک کنند.
+
+
+🔴ترامپ روز دوشنبه به وقت محلی در گفت و گو با شبکه سی ان بی سی نیوز افزود: متحدان ایالات متحده در ناتو «باید وارد عمل شوند و به ما کمک کنند» زیرا آنها بیش از ایالات متحده به نفتی که از تنگه هرمز عبور می‌کند، متکی هستند.
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+---
 📅 بروزرسانی: 1405/03/11 22:34
 ---
 
