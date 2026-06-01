@@ -7,6 +7,107 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/12 00:33
+---
+
+## pm_afshaa — post 92074
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+بعد از گفت‌وگوی تاثیرگذار و موفق ترامپ و نتانیاهو راجع‌به آتش‌بس اسرائیل و لبنان، هم‌اکنون جنگنده‌های اسرائیلی دارن جنوب لبنان رو بمباران میکنن.
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 92073
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+حمله پهپادی حزب الله به اسراییل
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 92072
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+حزب الله درخواست اتش بس آمریکا رو رد کرد
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## IranIntlTV — post 340113
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_340113_1780347817.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔻‌مهدی تاج، رییس فدراسیون فوتبال در گفتگویی تلویزیونی گفت که برای بازی تدارکاتی تیم ملی با مالی،‌ چندین صد هزار دلار پرداخت شده است: «ما ۱۰۰ هزار دلار به مالی دادیم که بیاید، پول هواپیمایشان را دادیم، پول هتلشان را هم دادیم. در این شرایط بازی هماهنگ کردن خیلی سخت است.»
+
+🔹تیم ملی فوتبال در مسیر آماده‌سازی برای جام جهانی، بازی تدارکاتی مناسبی نداشته است؛ پس قرعه‌کشی فدراسیون فوتبال مدعی شد با اسپانیا و پرتغال دیدار دوستانه خواهد داشت، اما در پی جنگ ایران، این مسابقات از سوی این دو کشور لغو شد، پس از این گفته شد مقدونیه و آنگولا حریفان تدارکاتی تیم ملی هستند که آنها هم این بازی را لغو کردند.
+
+🔹در پی این اتفاقات، تیم ملی ۴ بار با خودش بازی کرد و در نهایت در اردوی آنتالیا، با گامبیا، تیم ۱۱۶ دنیا بازی کرد.
+
+🔹تیم ملی تاکنون نتوانسته با هیچ کدام از تیم‌های راه‌یافته به جام جهانی ۲۰۲۶ بازی کند.
+
+🔹فدراسیون فوتبال اعلام کرده بازی با مالی، پنجشنبه ۱۴ خرداد در آنتالیا برگزار خواهد شد.
+
+@iranintltvsport
+</div>
+
+## Shin_Persian — post 6378
+
+<div align="center">
+  <img src="telegram/content/Shin_Persian_6378_1780347818.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Shin ✓ @hey_itsmyturn
+Mon, 01 Jun 2026 20:54:47 UTC
+
+Sirens in Shlomi, #Israel 🇮🇱
+
+فارسی
+
+آژیرهای خطر در شلومی، #Israel 🇮🇱
+
+𝕏 · @shin_persian
+</div>
+
+## alonews — post 124330
+
+<div align="center">
+  <a href="telegram/content/alonews_124330_1780347819.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈عوستاد خوش چشم: جنگ نمیشه
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 124328
+
+<div align="center">
+  <a href="telegram/content/alonews_124328_1780347819.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈عجیب اما واقعی
+‼️ 
+🔴سپاه قم اومد یه بمب عمل نکرده از جنگ رو خنثی کنه و ۲سپاهی بر اثر انفجار کشته شدن و بمب خنثی شد 
+✅ @AloNews خبر جنگ
+</div>
+
+---
 📅 بروزرسانی: 1405/03/12 00:23
 ---
 
