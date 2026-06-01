@@ -7,6 +7,101 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/11 18:53
+---
+
+## DEJradio — post 5224
+
+<div align="center">
+  <a href="telegram/content/DEJradio_5224_1780327422.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔥
+🔺 یک کشتی باری غول‌پیکر با پرچم پاناما دوشنبه ۱۱ خرداد ۱۴۰۵ در آب‌های سرزمینی عراق در معرض انفجار قرار گرفته است.
+
+منابع عربی گزارش دادند کشتی MSC SARISKA V پس از تخلیه محموله خود در بندر ام‌القصر عراق، در آب‌های عراق بر اثر یک انفجار دچار آسیب شد.
+مشخص نیست این کشتی هدف پرتابه قرار گرفته است یا به مین‌های دریایی برخورد کرده است.
+
+#انفجار #عراق
+@DEJradio
+</div>
+
+## FarsiVOA — post 219277
+
+<div align="center">
+  <a href="telegram/content/FarsiVOA_219277_1780327423.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+بعد از بازگشایی محدود اینترنت در ایران، ویدیوی جدیدی از آسمان دودگرفته تهران در زمان جنگ در شبکه‌های اجتماعی منتشر و پربازدید شده است.
+</div>
+
+## BBCPersian — post 282579
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔻یاشار دارالشفا، زندانی سیاسی پیشین، بازداشت شد
+
+یاشار دارالشفا، زندانی سیاسی پیشین، صبح امروز در تهران بازداشت شد.
+
+به گزارش خبرگزاری حقوق‌بشری هرانا، یاشار دارالشفا صبح دوشنبه با مراجعه نیروهای امنیتی و پس از تفتیش خانه، بازداشت شد.
+
+از علت بازداشت و نهاد بازداشت‌کننده او اطلاعاتی منتشر نشده است.
+
+یاشار دارالشفا چندین بار بازداشت و زندانی شده است. او آخرین بار در بهمن ۱۴۰۱ از زندان آزاد شد.
+
+https://bbc.in/4xgsxFw
+@BBCPersian
+</div>
+
+## Dirty_Kids — post 390755
+
+<div align="center">
+  <a href="telegram/content/Dirty_Kids_390755_1780327425.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+دقایقی قبل، حمله هوایی در جبل عامل در جنوب لبنان
+
+
+@Dirty_Kids 👻
+</div>
+
+## alonews — post 124233
+
+<div align="center">
+  <a href="telegram/content/alonews_124233_1780327426.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈گفتگوی تلفنی وزرای امور خارجه ایران و فرانسه
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 124232
+
+<div align="center">
+  <a href="telegram/content/alonews_124232_1780327427.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈آژانس بین‌المللی انرژی اتمی در بیانیه‌ای اعلام کرد که شورای حکام این آژانس به درخواست مصر، اردن، مراکش و عربستان سعودی در پی حمله به نیروگاه هسته‌ای براکه در امارات متحده عربی، در تاریخ ۵ ژوئن جلسه فوری و اضطراری برگزار خواهد کرد.
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 124231
+
+<div align="center">
+  <a href="telegram/content/alonews_124231_1780327427.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈 ایزدخواه، نماینده مجلس: راه قدس از ابوظبی می‌گذرد به امارات حمله زمینی کنیم !
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+---
 📅 بروزرسانی: 1405/03/11 18:44
 ---
 
