@@ -7,6 +7,135 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/11 06:42
+---
+
+## mwarmonitor — post 9965
+
+<div align="center">
+  <img src="telegram/content/mwarmonitor_9965_1780283576.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🚨فوری | خبرنگار الجزیره: آژیرهای هشدار در کویت به صدا درآمد. @mwarmonitor
+</div>
+
+## mwarmonitor — post 9964
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🚨فوری | خبرنگار الجزیره: آژیرهای هشدار در کویت به صدا درآمد.
+
+@mwarmonitor
+</div>
+
+## mwarmonitor — post 9963
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴باراک راوید: یک مقام آمریکایی به من گفت که وزیر خارجه ایالات متحده، مارکو روبیو، طی ۴۸ ساعت گذشته با جوزف عون رئیس‌جمهور لبنان و بنیامین نتانیاهو نخست‌وزیر اسرائیل گفت‌وگو کرده تا ابتکار جدیدی برای آتش‌بس را پیش ببرد.
+
+🔴 این مقام آمریکایی گفت ابتکار جدید در چارچوب مذاکرات جاری میان اسرائیل و لبنان پیشنهاد شده است.
+
+🔴 به گفته این مقام، آمریکا برای پیشبرد این گفت‌وگوها پیشنهاد داده که در گام نخست، حزب‌الله تمامی حملات خود علیه اسرائیل را متوقف کند و در مقابل، اسرائیل از تشدید تنش در بیروت خودداری کند.
+
+🔴 این مقام افزود که چنین اقدامی «فضایی برای کاهش تدریجی تنش و توقف مؤثر درگیری‌ها» ایجاد خواهد کرد.
+
+🔴 به گفته مقام آمریکایی، رئیس‌جمهور عون تلاش کرد این پیشنهاد را پیش ببرد و به توافقی دست یابد، اما پاسخ نبیه بری، رئیس پارلمان لبنان، مبهم و ناامیدکننده بود.
+
+🔴 این مقام ادعا کرد که بری مدعی شد می‌تواند پایبندی حزب‌الله به آتش‌بس را تضمین کند، اما مسئولیت آغاز توقف تیراندازی را بر عهده اسرائیل گذاشت؛ آن هم در حالی که به گفته او، حزب‌الله آغازگر این دور از درگیری‌ها بوده است.
+
+🔴 این مقام آمریکایی تأکید کرد: «حزب‌الله از خط‌مشی تهران پیروی می‌کند و آشکارا هیچ علاقه‌ای به رفاه مردم لبنان ندارد.»
+
+🔴به ادعای این مقام، ایران می‌خواهد درگیری در لبنان را طولانی کند تا بتواند بعداً مدعی شود که «اوضاع را نجات داده است».
+
+🔴 این مقام گفت: «ایالات متحده انتظار ندارد اسرائیل حملات مداوم به غیرنظامیان خود از سوی یک سازمان تروریستی را تحمل کند. سریع‌ترین راه برای کاهش تنش و حفاظت از غیرنظامیان در همه طرف‌ها این است که حزب‌الله فوراً شلیک را متوقف کند.»
+
+@mwarmonitor
+</div>
+
+## VahidOnline — post 75827
+
+<div align="center">
+  <img src="telegram/content/VahidOnline_75827_1780283577.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+شلیک موشک به کویت
+
+دوباره همز‌مان پیام‌هایی درباره شلیک موشک از امیدیه خوزستان و اعلام هشدار در کویت دریافت کردم.
+دوشنبه ۱۱ خرداد
+ساعت ۶ به وقت کویت که میشه ساعت ۶:۳۰ به وقت ایران
+Vahid
+
+📡 @VahidOnline
+</div>
+
+## Shin_Persian — post 6345
+
+<div align="center">
+  <img src="telegram/content/Shin_Persian_6345_1780283577.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Shin ✓ @hey_itsmyturn
+Mon, 01 Jun 2026 03:09:11 UTC
+
+Kuwait Ministry of Defense:
+Air defenses are currently engaging hostile missile and drone attacks.
+
+General Staff notes that explosion sounds are the result of air defense interceptions.
+
+Follow safety instructions …
+
+Source: https://x.com/i/web/status/2061283849951166777
+
+فارسی
+
+وزارت دفاع کویت:
+پدافند هوایی در حال حاضر در حال درگیری با حملات موشکی و پهپادی متخاصم است.
+
+ستاد کل نیروهای مسلح خاطرنشان می‌کند که صدای انفجارها ناشی از رهگیری‌های پدافند هوایی است.
+
+دستورالعمل‌های ایمنی را رعایت کنید ...
+
+منبع: https://x.com/i/web/status/2061283849951166777
+
+𝕏 · @shin_persian
+</div>
+
+## Shin_Persian — post 6344
+
+<div align="center">
+  <img src="telegram/content/Shin_Persian_6344_1780283578.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Shin ✓ @hey_itsmyturn
+Mon, 01 Jun 2026 03:07:57 UTC
+
+Kuwaiti Air Defenses are currently responding to hostile missile and drone attacks.
+
+General Staff of the Army: Explosions heard are the result of interceptions.
+
+Follow all safety instructions from authorities.
+
+#Kuwa…
+
+Source: https://x.com/i/web/status/2061283538721206351
+
+فارسی
+
+پدافند هوایی کویت در حال حاضر در حال مقابله با حملات موشکی و پهپادی متخاصم است.
+
+ستاد کل ارتش: انفجارهای شنیده شده نتیجه رهگیری‌ها است.
+
+تمامی دستورالعمل‌های ایمنی مقامات را رعایت کنید.
+
+#Kuwa…
+
+منبع: https://x.com/i/web/status/2061283538721206351
+
+𝕏 · @shin_persian
+</div>
+
+---
 📅 بروزرسانی: 1405/03/11 06:33
 ---
 
