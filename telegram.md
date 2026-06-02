@@ -7,6 +7,336 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/13 02:23
+---
+
+## VahidOOnLine — post 243443
+
+<div align="center">
+  <a href="telegram/content/VahidOOnLine_243443_1780440826.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️مارکو روبیو، وزیر امور خارجه ایالات متحده، روز سه‌شنبه ۱۲ خرداد در جلسه استماع سنا گفت عوامل جمهوری اسلامی ایران به طور مداوم در حال برنامه‌ریزی برای ترور مقام‌های سیاسی آمریکا بوده‌اند.
+روبیو گفت: «افرادی در آمریکا محکوم شده‌اند و روز گذشته نیز یک نفر بازداشت شد؛ عوامل ایرانی برای ترور مقام‌های سیاسی آمریکا، از جمله رئیس‌جمهوری ایالات متحده، برنامه‌ریزی کرده‌اند.»
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## WithYashar — post 13321
+
+<div align="center">
+  <a href="telegram/content/WithYashar_13321_1780440828.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+تصادف در خیابان های کویت بر اثر تماشای موشکهای ایران
+@withyashar
+</div>
+
+## mwarmonitor — post 10049
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+💥انفجار در اربیل
+</div>
+
+## mwarmonitor — post 10048
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+💥انفجار در بحرین
+</div>
+
+## mwarmonitor — post 10047
+
+<div align="center">
+  <a href="telegram/content/mwarmonitor_10047_1780440829.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+💥۳ انفجار شدید دیگر در کویت شنیده شد
+</div>
+
+## FoxNewsTwitter — post 342523
+
+<div align="center">
+  <a href="telegram/content/FoxNewsTwitter_342523_1780440830.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+FOX NEWS REPORT: Secretary of State Marco Rubio told lawmakers that Iran reopening the Strait of Hormuz is a prerequisite for talks to move forward, and said dysfunction within the Iranian regime has slowed progress toward a potential agreement. @BillMelugin_ has the latest.
+</div>
+
+## FoxNewsTwitter — post 342522
+
+<div align="center">
+  <img src="telegram/content/FoxNewsTwitter_342522_1780440832.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+The numbers are in: FOX News was the most-watched news brand on YouTube in May.
+
+Our content generated more than 338 million views — more than tripling the viewership of every broadcast network — as audiences continue turning to FOX News for the biggest stories shaping the country and the world.
+</div>
+
+## pm_afshaa — post 92149
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_92149_1780440832.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴تصاویری از فعال شدن پدافند کویت درپی حمله موشکی و پهبادی ایران : 
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom 
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 92148
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_92148_1780440833.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴تصاویری از فعال شدن پدافند کویت درپی حمله موشکی و پهبادی ایران : 
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom 
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 92145
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_92145_1780440833.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴تصاویری از فعال شدن پدافند کویت درپی حمله موشکی و پهبادی ایران :
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 92144
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_92144_1780440834.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴ایران موشک و پهباد زده سمت کویت
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## Shin_Persian — post 6431
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Shin ✓ @hey_itsmyturn
+Tue, 02 Jun 2026 22:43:34 UTC
+
+3 more loud blasts in #Kuwait 🇰🇼 right now
+(4 in total within 1 minute)
+
+فارسی
+
+هم‌اکنون ۳ انفجار بلند دیگر در #Kuwait 🇰🇼
+(در مجموع ۴ مورد طی ۱ دقیقه)
+
+𝕏 · @shin_persian
+</div>
+
+## Shin_Persian — post 6427
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Shin ✓ @hey_itsmyturn
+Tue, 02 Jun 2026 22:43:01 UTC
+
+Huge blast in #Kuwait 🇰🇼
+
+فارسی
+
+انفجار عظیم در #Kuwait 🇰🇼
+
+𝕏 · @shin_persian
+</div>
+
+## Persian_Trend_Official — post 15559
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🚨فووری!!!!!
+
+آژیر های هشدار در بحرین نیز فعال شدند!
+
+📝 Nick
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## Persian_Trend_Official — post 15558
+
+<div align="center">
+  <a href="telegram/content/Persian_Trend_Official_15558_1780440835.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⭕️ مهر: یک پرتابه به ساحل ایران برخورد کرد
+
+خبرگزاری مهر گزارش داد یک پرتابه در محدوده ساحلی بین شهر سوزا و روستای ماسان برخورد کرده است.
+
+📝 Nick
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## Persian_Trend_Official — post 15557
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⭕️ همزمان با حملات موشکی به کویت، خبرها از انفجار های متعدد در اربیل عراق خبر می‌دهند.
+
+📝 Nick
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## Persian_Trend_Official — post 15556
+
+<div align="center">
+  <a href="telegram/content/Persian_Trend_Official_15556_1780440835.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⭕️ یه راننده کویتی از ترس رفت تو بلوار 🗿
+
+📝 Nick
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## Persian_Trend_Official — post 15555
+
+<div align="center">
+  <img src="telegram/content/Persian_Trend_Official_15555_1780440837.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚠️ خلیج فارس بوده، خلیج فارس هست و خلیج فارس خواهد بود. 😠
+
+⭕️ سنتکام یک شناورِ سرپیچی‌کننده را در خلیج فارس از کار انداخت.
+
+تامپا، فلوریدا — نیروهای ایالات متحده روز ۲ ژوئن یک نفتکشِ بدون بار را که در تلاش بود به سوی یک بندر ایرانی در خلیج فارس حرکت کند، از کار انداختند.
+
+فرماندهی مرکزی ایالات متحده (سنتکام) هنگام عبور نفتکش M/T Lexie با پرچم بوتسوانا به‌سوی جزیرهٔ خارگ، تدابیر محاصره‌ای را علیه آن اجرا کرد. خدمهٔ این کشتی در طول یک بازهٔ ۲۴ ساعته، بارها هشدارهای مکرر را نادیده گرفتند و از تبعیت از دستورهای نیروهای آمریکایی سر باز زدند.
+
+در نهایت، یک فروند هواگرد آمریکایی با شلیک یک موشک هلفایر به اتاق موتور کشتی، آن را از کار انداخت و مانع از رسیدن نفتکش به ایران شد.
+
+سنتکام از ۱۳ آوریل اجرای محاصرهٔ همهٔ ترافیک دریاییِ ورودی و خروجیِ بنادر ایران را آغاز کرده است. با ادامهٔ آتش‌بس با ایران، نیروهای آمریکایی تاکنون شش کشتی تجاری را از کار انداخته و ۱۲۲ فروند شناور را به مسیر دیگری هدایت کرده‌اند.
+
+📝 Nick
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## alonews — post 124645
+
+<div align="center">
+  <img src="telegram/content/alonews_124645_1780440837.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🤚 اینترنت مخصوص جنگ 🚀✅
+
+⭐️ فقط گیگی 8 هزار تومان😍
+
+✅ بدون قطعی‌های آزاردهنده
+✅ سرعت بالا حتی ساعات شلوغ
+✅ مناسب تلگرام، اینستاگرام و یوتیوب
+✅ همراه با ساب
+
+✅ تعداد محدود با این قیمت
+
+🤖 @NetAazaadBot
+🤖 @NetAazaadBot
+</div>
+
+## alonews — post 124644
+
+<div align="center">
+  <a href="telegram/content/alonews_124644_1780440837.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈تا این لحظه حداقل پنج موشک به سمت کویت شلیک شده است
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 124643
+
+<div align="center">
+  <a href="telegram/content/alonews_124643_1780440838.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈مهر: یک پرتابه به ساحل ایران برخورد کرد
+خبرگزاری مهر گزارش داد یک پرتابه در محدوده ساحلی بین شهر سوزا و روستای ماسان برخورد کرده است
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 124642
+
+<div align="center">
+  <a href="telegram/content/alonews_124642_1780440838.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈سه انفجار دیگر در کویت گزارش شده
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 124641
+
+<div align="center">
+  <a href="telegram/content/alonews_124641_1780440838.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈یه راننده کویتی از ترس صدای موشک رفت تو بلوار
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 124640
+
+<div align="center">
+  <a href="telegram/content/alonews_124640_1780440839.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+💢فووووووووووووووری/همین الان چند جنگنده آمریکایی در مرز ایران درحال پرواز هستن 
+🚨 @AkhbareFouri
+</div>
+
+## alonews — post 124639
+
+<div align="center">
+  <a href="telegram/content/alonews_124639_1780440840.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈آژیرهای هشدار در کویت بار دیگر فعال شدند
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+---
 📅 بروزرسانی: 1405/03/13 02:13
 ---
 
