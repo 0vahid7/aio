@@ -7,6 +7,226 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/12 21:03
+---
+
+## VahidOOnLine — post 243392
+
+<div align="center">
+  <a href="telegram/content/VahidOOnLine_243392_1780421637.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️نروژ ظروف چینی و قطعات لوستر را از یک کشتی غرق‌شده متعلق به قرن هجدهم بیرون کشید
+
+باستان‌شناسان مجموعه‌ای ارزشمند از ظروف چینی ساخت چین و کالاهای تولیدشده در اروپا را از یک کشتی غرق‌شده متعلق به قرن هجدهم که به‌تازگی در سواحل نروژ کشف شده، بیرون آورده‌اند.
+
+به گفته موزه دریایی نروژ، در میان اشیای کشف‌شده از بقایای این کشتی بادبانی ناشناس، کاسه‌های چینی سفید و آبی که به‌طور منظم روی هم چیده شده بودند، جام‌ها، منسوجات، غلات و قطعاتی از لوسترها دیده می‌شود.
+
+این کشتی که گمان می‌رود در میانه دهه ۱۷۰۰ میلادی غرق شده باشد، توسط مالک یک شرکت نجات دریایی در تنگه اسکاگرک در جنوب نروژ و در عمق حدود ۶۰۰ متری زیر آب پیدا شد.
+
+مبدأ و مقصد این کشتی هنوز مشخص نیست، اما پژوهش‌ها برای شناخت بیشتر این کشتی غرق‌شده و محموله آن همچنان ادامه دارد.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 243391
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_243391_1780421638.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️ فرماندهی مرکزی ارتش آمریکا، سنتکام، روز سه‌شنبه ۱۲ خرداد، اعلام کرد که در ادامه اعمال محاصره دریایی علیه بنادر و کشتی‌های ایران، تعداد شناورهایی که با دستور ارتش آمریکا تغییر مسیر داده‌اند به ۱۲۲ رسید. سنتکام پیش‌تر اعلام کرده بود که پنج شناور که از این دستورات پیروی نکرده بودند، هدف قرار گرفته و از کار افتادند.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## WithYashar — post 13280
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ربطی نداره ناو لینکلن ، بوش و ناو آبی خاکی‌ تریپلی و کلی‌ ناوشکن هستند و کافیه!
+</div>
+
+## FoxNewsTwitter — post 342504
+
+<div align="center">
+  <img src="telegram/content/FoxNewsTwitter_342504_1780421638.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+WATCH LIVE: Dr. Mehmet Oz holds White House press briefing https://twitter.com/i/broadcasts/1dGYllLDpNDKX
+</div>
+
+## pm_afshaa — post 92123
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_92123_1780421639.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴شبکه 12 اسرائیل: دستور تخلیه ضاحیه جنوبی بخشی از هماهنگی نتانیاهو و ترامپ برای فشار به ایران تو مذاکرات بوده و حمله مستقیم به ضاحیه بیروت در برنامه نبوده. 
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom 
+😁 @Pm_Afshaa
+</div>
+
+## IranIntlTV — post 340246
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_340246_1780421639.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+هم‌زمان با ادامه تنش‌ها در منطقه، بنیامین نتانیاهو دستور حمله به مواضع حزب‌الله در ضاحیه بیروت را صادر کرد.
+
+فرزین ندیمی، پژوهشگر ارشد امور دفاعی و امنیتی به برنامه تیتر اول گفت وضعیت کنونی میان حزب‌الله و اسرائیل نشان‌دهنده نوعی توقف حملات است و آتش‌بس محسوب نمی‌شود
+@iranintltv
+</div>
+
+## IranIntlTV — post 340245
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_340245_1780421641.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+هما میرافشار، شاعر و ترانه‌سرای برجسته ایرانی و خالق صدها ترانه، در ۸۹ سالگی در لس‌آنجلس درگذشت. او با هنرمندانی چون حمیرا، هایده، مهستی، ابی، داریوش، معین و مرتضی همکاری داشت.
+
+گفت‌وگو با مرتضی برجسته، خواننده و آهنگ‌ساز، درباره کارنامه هنری هما میرافشار
+@iranintltv
+</div>
+
+## FarsiVOA — post 219391
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+مارکو روبیو، وزیر خارجه آمریکا در جلسه کمیته روابط خارجی سنا گفت در پاسخ به سناتور دموکرات کریس مورفی، کاهش تحریم‌ها در ازای بازگشایی تنگه هرمز را رد کرد و گفت که هرگونه کاهش تحریم‌ها باید پس از امتیازات عمده در مسئله هسته‌ای و اورانیوم غنی‌شده صورت گیرد. بخشی از پوشش ویژه صدای آمریکا با ترجمه همزمان مهرناز صمیمی
+</div>
+
+## FarsiVOA — post 219390
+
+<div align="center">
+  <a href="telegram/content/FarsiVOA_219390_1780421643.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+نزدیکان حامد دلدار، از کشته‌شدگان دی ماه ۱۴۰۴، بعد از بازگشایی محدود اینترنت در ایران، ویدیویی از بی‌قراری مادرش بر آرامگاه او منتشر کرده‌اند.
+
+حامد دلدار، ۳۲ ساله، ۱۸ دی ۱۴۰۴ از پشت هدف گلوله نیروهای حکومتی در رشت قرار گرفت. به دلیل نگرانی از بازداشت در بیمارستان، ⁨ابتدا او را به خانه بردند. اما درپی وخامت حال، درد و خون‌ریزی در نهایت او را به بیمارستان منتقل کردند. به رغم عمل جراحی، ‌حامد دلدار کشته شد.
+
+نسخه اصلی این ویدیو با موسیقی متن منتشر شده است.
+</div>
+
+## Persian_Trend_Official — post 15528
+
+<div align="center">
+  <img src="telegram/content/Persian_Trend_Official_15528_1780421645.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+باور کنید ترامپ یه دستی هم در بیزینس تریاک داره با پامپ و دامپ کردن بازار میخواد نوسانگیری کنه !
+
+بخدا تقصیر ما هم نیست. شما فعلا تو کف قیمت یک کیلو بگیر بهت قول میدم اگر نکشی تا سال دیگه خیلی سود میکنی 😄
+</div>
+
+## Persian_Trend_Official — post 15527
+
+<div align="center">
+  <img src="telegram/content/Persian_Trend_Official_15527_1780421645.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+خبرگزاری فارس: مذاکرات با آمریکا متوقف شد! یک منبع مطلع می‌گوید ایران و آمریکا در حال حاضر پیام رد و بدل نمی‌کنند و مذاکراتی که هدف آن رسیدن به تفاهم اولیه بود، ظاهراً برای چند روز متوقف شده است. این موضوع با ادعای اخیر ترامپ که گفته بود مذاکرات به سرعت…
+</div>
+
+## RadioFarda — post 157827
+
+<div align="center">
+  <a href="telegram/content/RadioFarda_157827_1780421646.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔸کاوه زرین قلم، کنشگر و مستندنگار مستقل حیات وحش تصاویری از آزادی کبوتران دربند توسط خود را در صفحه اینستاگرامش منتشر کرده است.
+
+🔸کاوه زرین قلم همراه با انتشار این تصاویر نوشت: «آزادی کبوتران در بند
+تقدیم به همه مردم ایران.»
+
+🔸این تصاویر که با موسیقی منتشر شده، ۱۱ خرداد ثبت شده است.
+
+@RadioFarda
+</div>
+
+## Dirty_Kids — post 390851
+
+<div align="center">
+  <img src="telegram/content/Dirty_Kids_390851_1780421648.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+‏بی شک؛ جمعه ای نه چندان دور!
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 390850
+
+<div align="center">
+  <img src="telegram/content/Dirty_Kids_390850_1780421648.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+پرتاب شدم😂😂😂😂😂😂😂😂😂
+
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 390849
+
+<div align="center">
+  <img src="telegram/content/Dirty_Kids_390849_1780421648.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 کاظمی، وزیر آموزش و پرورش: تاثیر قطعی معدل تو کنکور، بخاطر شورای عالی انقلاب فرهنگیه و هیچ ربطی به آموزش و پرورش نداره. ما هم خودمون به خسروپناه و رفیقاش پیشنهاد کردیم که امسال رو استثنا قائل بشن و این تاثیر قطعی رو بردارن. به هرحال کشور شرایط جنگی داشته…
+</div>
+
+## Dirty_Kids — post 390848
+
+<div align="center">
+  <a href="telegram/content/Dirty_Kids_390848_1780421649.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 کاظمی، وزیر آموزش و پرورش:
+تاثیر قطعی معدل تو کنکور، بخاطر شورای عالی انقلاب فرهنگیه و هیچ ربطی به آموزش و پرورش نداره.
+
+ما هم خودمون به خسروپناه و رفیقاش پیشنهاد کردیم که امسال رو استثنا قائل بشن و این تاثیر قطعی رو بردارن.
+به هرحال کشور شرایط جنگی داشته و آموزش‌ها مجازی و کم کیفیت بودن؛ یه عیدی به این بچه‌ها بدید.
+
+
+@Dirty_Kids 👻
+</div>
+
+## alonews — post 124535
+
+<div align="center">
+  <a href="telegram/content/alonews_124535_1780421651.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈رئیس جمهور اوکراین ولادیمیر زلنسکی:
+ما از طریق اطلاعات می‌دانیم که یک حمله عظیم روسی ممکن است در زودترین وقت امشب رخ دهد.
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 124534
+
+<div align="center">
+  <a href="telegram/content/alonews_124534_1780421651.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈فرماندهی مرکزی آمریکا: ناو هواپیمابر آبراهام لینکلن به حمایت از محاصره دریایی اعمال‌شده علیه ایران ادامه می‌دهد
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+---
 📅 بروزرسانی: 1405/03/12 20:53
 ---
 
