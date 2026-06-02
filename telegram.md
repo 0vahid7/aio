@@ -7,6 +7,130 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/12 23:44
+---
+
+## VahidOOnLine — post 243411
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_243411_1780431266.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️وزارت خزانه‌داری ایالات متحده روز سه‌شنبه ۱۲ خرداد، صرافی «نوبیتکس»، بزرگ‌ترین صرافی ارز دیجیتال ایران، را به اتهام تسهیل دور زدن تحریم‌های غرب برای دولت و نهادهای تحت تحریم، هدف قرار داد. این اقدام پس از تحقیقات خبرگزاری رویترز انجام شد که نشان می‌داد نوبیتکس به گره مرکزی یک سیستم مالی موازی برای جابه‌جایی صدها میلیون دلار متعلق به بانک مرکزی و سپاه پاسداران تبدیل شده است.
+
+اسکات بسنت، وزیر خزانه‌داری آمریکا، در بیانیه‌ای اعلام کرد که جمهوری اسلامی در بحبوحه سقوط آزاد اقتصاد، از فناوری‌های دیجیتال برای پیشبرد برنامه‌های فاسد خود، از جمله خروج ثروت از کشور، استفاده کرده است. بر اساس سوابق شرکتی، این صرافی توسط دو برادر از خانواده «خرازی» به نام‌های سید محمدعلی و سید محمد آقامیر محمدعلی اداره می‌شود که به همراه مدیرعامل شرکت، امیرحسین راد، در فهرست تحریم‌های انفرادی قرار گرفتند.
+
+گزارش‌ها حاکی از آن است که نوبیتکس حتی در زمان قطعی اینترنت و پس از آغاز عملیات نظامی آمریکا در ایران، به جابه‌جایی دارایی‌ها برای محافظت از ثروت رژیم کمک کرده است.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 243410
+
+<div align="center">
+  <a href="telegram/content/VahidOOnLine_243410_1780431266.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ویدیوهای رسیده به ایران‌اینترنشنال نشان می‌دهند گروهی از ایرانیان مقیم آلمان سه‌شنبه ۱۲ خرداد در اعتراض به اعدام‌های جمهوری اسلامی و در حمایت از شاهزاده رضا پهلوی در شهر هانوفر تجمع کردند و تصاویر اعدام‌شدگان و جاویدنامان را به دست گرفتند.
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## WithYashar — post 13290
+
+
+
+
+## FoxNewsTwitter — post 342515
+
+<div align="center">
+  <a href="telegram/content/FoxNewsTwitter_342515_1780431268.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+JUST IN: Senate Minority Leader Chuck Schumer doubles down on his endorsement of Graham Platner in his high-stakes race to flip Maine's Senate seat.
+
+"As I said I endorsed Graham Platner... We're going to beat Susan Collins and take back to the Senate."
+</div>
+
+## IranianMinds — post 21264
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 آمریکا بزرگترین صرافیای ایران یعنی نوبیتکس،بیت‌پین، رمزینکس و والکس رو تحریم کرد.
+
++چیزی نیست اثرات مذاکرس
+
+@IranianMinds
+</div>
+
+## alonews — post 124599
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+فیلترشکن گیگی 
+8️⃣ هزار تومان 
+😂
+
+
+❌فیلترشکن گیگی 20 تومان دیگه نخر
+
+کف قیمت فیلترشکن 
+👇
+
+
+3️⃣
+0️⃣ 
+💿 
+2️⃣
+8️⃣
+5️⃣ 
+💸
+
+
+5️⃣
+0️⃣ 
+💿 
+4️⃣
+5️⃣
+0️⃣ 
+💸
+
+
+7️⃣
+0️⃣ 
+💿 
+5️⃣
+9️⃣
+5️⃣ 
+💸
+
+
+1️⃣
+0️⃣
+0️⃣ 
+💿 
+8️⃣
+0️⃣
+0️⃣ 
+💸
+
+
+برای خرید پیام بدین 
+👇
+
+
+🔤 @MrTh_Vpn
+
+🔤 @MrTh_Vpn
+
+🔤 @MrTh_Vpn
+</div>
+
+---
 📅 بروزرسانی: 1405/03/12 23:34
 ---
 
