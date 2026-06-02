@@ -7,6 +7,143 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/12 15:23
+---
+
+## pm_afshaa — post 92095
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_92095_1780401230.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴وزیر خارجه اسپانیا:
+در هیچ اقدامی که تنش با ایران رو افزایش بده، شرکت نمی‌کنیم. برای این بحران هیچ راه‌حل نظامی‌ای‌ وجود نداره. انتخاب واقعی، میان «نظم مبتنی بر قانون» و «جنگ به عنوان جایگزین دیپلماسی» است.
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## IranIntlTV — post 340193
+
+<div align="center">
+  <a href="https://t.me/IranintlTV/340193" target="_blank">📎 Download file</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🎧نسخه صوتی اخبار بامدادی | سه‌شنبه ۱۲ خرداد
+@iranintlTV
+</div>
+
+## FarsiVOA — post 219363
+
+<div align="center">
+  <a href="telegram/content/FarsiVOA_219363_1780401231.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ارتش اسرائیل با انتشار تصاویری، ضمن اعلام هدف قرار دادن زیرساخت‌های نظامی حزب‌الله، از تداوم عملیات در جنوب لبنان خبر داد.
+
+بر اساس اطلاعیه‌ای که ارتش اسرائیل در شبکه اجتماعی ایکس منتشر کرده، لشکر ۹۱ و نیروی هوایی این ارتش، همچنین روز دوشنبه یازدهم خرداد، «انبارهای نگهداری سلاح»، «مراکز فرماندهی» و دیگر زیرساخت‌های مرتبط با «فعالیت‌های تروریستی» حزب‌الله را جنوب لبنان هدف قرار داده است.
+
+ایالات متحده و برخی از کشورها از جمله اسرائيل، حزب‌الله لبنان را در فهرست سازمان‌های تروریستی قرار داده و اتحادیه اروپا نیز شاخه نظامی این سازمان را تروریستی می‌داند.
+@FarsiVOA
+</div>
+
+## FarsiVOA — post 219362
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+پرزیدنت ترامپ: مذاکرات با طرف ایرانی به سرعت پیش می‌رود
+</div>
+
+## FarsiVOA — post 219361
+
+<div align="center">
+  <img src="telegram/content/FarsiVOA_219361_1780401234.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+شرکت کشتیرانی ام‌اس‌سی اعلام کرد کشتی «ساریسکا وی» این شرکت روز دوشنبه در بندر ام‌قصر عراق هدف دو پرتابه قرار گرفت، اما همه اعضای خدمه سالم هستند و آسیبی ندیده‌اند.
+
+ام‌اس‌سی، که رویترز آن را بزرگ‌ترین گروه کشتیرانی جهان معرفی کرده، روز سه‌شنبه گفت سپاه پاسداران مسئولیت این حمله را برعهده گرفته است.
+
+این شرکت حادثه را «حمله‌ای بی‌دلیل» علیه یک کشتی تجاری بی‌طرف توصیف کرد و گفت این کشتی هیچ ارتباطی با آمریکا یا اسرائیل ندارد.
+
+ام‌اس‌سی در بیانیه‌ای اعلام کرد از این حملات و خطری که برای دریانوردان بی‌گناه و تجارت دریایی ضروری در منطقه ایجاد می‌کند، عمیقاً نگران است.
+
+رویترز در این گزارش جزئیات بیشتری درباره نوع پرتابه‌ها، میزان خسارت احتمالی به کشتی یا واکنش مقام‌های عراقی منتشر نکرده است.
+@FarsiVOA
+</div>
+
+## BBCPersian — post 282684
+
+<div align="center">
+  <a href="telegram/content/BBCPersian_282684_1780401235.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔻هجوم موش‌ها در بخش‌های وسیعی از استرالیا کشاورزان را به وحشت انداخته است؛ جوندگان در اطراف خانه‌ها به‌سرعت تکثیر شدهاند و مزارع غلات را نابود می‌کنند. 
+کشاورزان می‌گویند شبها صدای موش‌ها را در سقف‌ها و دستگاه‌های تهویه هوا می‌شنوند. آنها می‌گویند بوی موش‌ها «مثل جسد در حال پوسیدن» است. 
+جمعیت موش‌ها پس از یک برداشت خوب محصولات و به‌دنبال آن باران‌های تابستانی که باعث فراوانی غذا شد، به‌شدت افزایش یافته است. 
+این وضعیت در حالی رخ می‌دهد که کشاورزان از قبل هم به‌دلیل ناپایداری در تامین سوخت و کود، ناشی از جنگ جاری آمریکا و اسرائیل علیه ایران، تحت فشار بوده‌اند.
+
+https://bbc.in/3RzN1bZ
+@BBCPersian
+</div>
+
+## alonews — post 124446
+
+<div align="center">
+  <a href="telegram/content/alonews_124446_1780401236.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈 جنگنده‌های اسرائیلی به حملات هوایی خود در سراسر جنوب لبنان ادامه می‌دهند.
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 124444
+
+<div align="center">
+  <a href="telegram/content/alonews_124444_1780401236.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+💔جاویدنام مازیار نوروزی اصفهانی 36 ساله، 18 دی با شلیک تیر جنگی به سر در گرگان کشته شد. پسر عزیز و شجاع ما دغدغه مالی نداشت برای آزادی وطنش رفت.
+
+
+🔴حتی اجازه گرفتن مراسم و عزاداری به خانواده داده نشد.
+
+
+🤔عرزشی حرام زاده از عدل علی بگو
+
+
+✅@AloNews
+</div>
+
+## alonews — post 124443
+
+<div align="center">
+  <a href="telegram/content/alonews_124443_1780401237.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈بازار داغ اجاره پراید برای کار در تاکسی آنلاین ؛ روزی ۸۰۰ هزار تومان...!
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 124442
+
+<div align="center">
+  <a href="telegram/content/alonews_124442_1780401237.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈ویدیویی از حمله هوایی و انهدام سامانه موشکی در جنگ
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+---
 📅 بروزرسانی: 1405/03/12 15:14
 ---
 
