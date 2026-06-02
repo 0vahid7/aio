@@ -7,6 +7,103 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/13 00:24
+---
+
+## VahidOOnLine — post 243419
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_243419_1780433685.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+تد کروز، سناتور جمهوری‌خواه، در پیامی نوشت: جمهوری اسلامی برای تولید انرژی هسته‌ای غیرنظامی نیازی به غنی‌سازی اورانیوم ندارد و غنی‌سازی تنها یک هدف دارد: ساخت سلاح هسته‌ای.
+
+او افزود خطوط قرمز ترامپ «درست» است و شامل غنی‌سازی صفر، بازگشایی تنگه هرمز، تحویل ذخایر اورانیوم غنی‌شده و توقف تامین مالی تروریسم می‌شود.
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 243418
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_243418_1780433686.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️به گزارش رویترز، مارکو روبیو، وزیر امور خارجه آمریکا، روز سه‌شنبه، در جلسه استماع مجلس نمایندگان اعلام کرد که واشنگتن به افراد مرتبط با سپاه پاسداران اجازه نخواهد داد در قالب هیات اعزامی ایران برای مسابقات جام جهانی فوتبال وارد این کشور شوند. روبیو با اشاره به اینکه بازی‌های تیم ملی ایران در خاک آمریکا برگزار می‌شود اما محل اقامت آن‌ها در مکزیک خواهد بود، تاکید کرد که ایالات متحده مشکلی با ورود بازیکنان و کادر فنی تیم فوتبال ایران ندارد، اما با نظارت دقیق و سخت‌گیرانه، جلوی ورود هر فردی را که ارتباطی با ورزش نداشته و با سپاه پاسداران در ارتباط باشد خواهد گرفت.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## IranIntlTV — post 340278
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_340278_1780433686.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+تد کروز، سناتور جمهوری‌خواه، در پیامی نوشت: جمهوری اسلامی برای تولید انرژی هسته‌ای غیرنظامی نیازی به غنی‌سازی اورانیوم ندارد و غنی‌سازی تنها یک هدف دارد: ساخت سلاح هسته‌ای.
+
+او افزود خطوط قرمز ترامپ «درست» است و شامل غنی‌سازی صفر، بازگشایی تنگه هرمز، تحویل ذخایر اورانیوم غنی‌شده و توقف تامین مالی تروریسم می‌شود.
+https://iranintl.com/202606025610
+</div>
+
+## Dirty_Kids — post 390866
+
+<div align="center">
+  <img src="telegram/content/Dirty_Kids_390866_1780433687.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+دهنتون سرویس اینا چیه درست میکنید :))))))))
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 390865
+
+<div align="center">
+  <img src="telegram/content/Dirty_Kids_390865_1780433688.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 آمریکا بزرگترین صرافی‌های ایرانی شامل: نوبیتکس، والکس، بیت‌پین و رمزینکس رو تحریم کرد.
+
+چه تبعاتی می‌تونه داشته باشه؟
+
+ممکنه دارایی برخی کاربران مسدود بشه.
+ممکنه توی برداشت پول به مشکل بخورین!
+احتمالا دارایی های تحت کنترل آمریکا برای خود صرافی مسدود میشه.
+صرافی های بین المللی نمیتونن با این صرافی ها کار کنن.
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 390864
+
+<div align="center">
+  <img src="telegram/content/Dirty_Kids_390864_1780433688.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+مامان روبیکا دست هرکیه سریع بره پس بده
+‌
+
+@Dirty_Kids 👻
+</div>
+
+## alonews — post 124607
+
+<div align="center">
+  <a href="telegram/content/alonews_124607_1780433688.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈گلرو، عضو کمیسیون امنیت ملی و سیاست خارجی مجلس : تیم مذاکره کننده با قدرت ایستاده تا آمریکا به خواسته هایش نرسد
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+---
 📅 بروزرسانی: 1405/03/13 00:15
 ---
 
