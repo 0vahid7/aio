@@ -7,6 +7,385 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/12 22:40
+---
+
+## VahidOOnLine — post 243402
+
+<div align="center">
+  <a href="telegram/content/VahidOOnLine_243402_1780427418.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+بر اساس گزارش‌های رسیده به ایران‌اینترنشنال، سجاد (داود) صادقی مولان، شهروند ساکن کیانشهر تهران، در جریان اعتراضات روز ۱۹ دی‌ماه در این منطقه، بر اثر اصابت گلوله نیروهای حکومتی به سرش کشته شد.
+
+بنا بر این گزارش، پیکر این جاویدنام عصر ۲۱ دی‌ماه در کهریزک به خانواده تحویل داده شد و همان شب در شرایطی که امکان برگزاری مراسم عادی وجود نداشت، با نور تلفن‌های همراه به خاک سپرده شد. همچنین به خانواده و همراهان او هشدار داده شده بود که از اطلاع‌رسانی عمومی درباره کشته شدن او خودداری کنند.
+
+در گواهی فوت علت مرگ «اصابت شی تیز به سر» عنوان شده است.
+
+سجاد (داود) صادقی مولان کارگر بود و دو فرزند خردسال، یک دختر ۹ ساله و یک پسر ۲ ساله، از او به یادگار مانده‌اند.
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 243401
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_243401_1780427422.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️ کاخ تاریخی سنا که در سال سال‌های ۱۳۳۲ تا ۱۳۳۷ خورشیدی به دستور محمدرضاشاه پهلوی ساخته شده بود، در جریان حملات مشترک اسرائیل و آمریکا به تهران آسیب جدی دید. در حمله اولیه، بخش اداری این بنا به‌طور کامل از بین رفتن و سقف سالن اصلی نیز در اثر شدت آسیب به ستون‌ها فرو ریخت.
+
+این بنا که در ابتدا به‌عنوان ساختمان سنا و در شمال خیابان سپه ساخته شده بود، بعد از انقلاب اسلامی مدتی به‌عنوان ساختمان مجلس شورای اسلامی مورد استفاده قرار گرفت. پس از انتقال مجلس به ساختمان فعلی در بهارستان، این بنا محل برگزاری جلسات سالانه مجلس خبرگان بود. به گفته اسکندر مختاری، مرمتگر، معمار و پژوهشگر میراث شهری فرآیند مرمت و بازسازی ساختمان سنا پیش از جنگ آغاز شده و تصویربرداری سه‌بعدی لیزری از آن نیز تا حدی انجام شده بود.
+
+مختاری در گفتگو با ایسنا اعلام کرد که موشک بخش اداری ساختمان در شمال را تا ۸۰ درصد از بین برده و سقف صحن، بالکن‌های بخش خبرنگاران و ستون‌ها نیز آسیب جدی دیده‌اند اما نمای سمت خیابان سپه، تا حد زیادی پابرجا باقی‌مانده است.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## WithYashar — post 13286
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+کرج صدای پدافند 🚨
+@withyashar
+</div>
+
+## FoxNewsTwitter — post 342513
+
+<div align="center">
+  <a href="telegram/content/FoxNewsTwitter_342513_1780427423.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+"I know your staff wrote up this cute statement for your TikTok video, but it's not true."
+
+Secretary Marco Rubio shuts down Democrat Senator Jacky Rosen's talking points trying to claim that he has been skipping critical U.S. negotiations.
+
+"You're 100% inaccurate and 100% wrong."
+
+The Secretary of State said he has been in constant communication with the U.S.-Iranian negotiators and President Trump throughout the high-stakes talks between countries, speaking with the team multiple times on secure lines while negotiations were underway.
+</div>
+
+## FoxNewsTwitter — post 342512
+
+<div align="center">
+  <img src="telegram/content/FoxNewsTwitter_342512_1780427426.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+WATCH LIVE: Homeland Security Secretary Markwayne Mullin faces first Senate budget grilling https://twitter.com/i/broadcasts/1OxwbbWBdbDJB
+</div>
+
+## iaghapour — post 2650
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⭕️ کدهای مخفی چت جی‌پی‌تی؛ ۸ ترفندی که پاسخ‌ها را متحول می‌کند!
+
+بیشتر افراد از چت جی‌پی‌تی فقط مثل یک موتور جستجوی ساده استفاده می‌کنند و پاسخ‌های کلیشه‌ای می‌گیرند. اما کاربران حرفه‌ای می‌دانند که با اضافه کردن چند فرمان کوتاه، می‌توان نحوه تفکر و خروجی این هوش مصنوعی را کاملا تغییر داد.
+
+🔹 ساده‌سازی مفاهیم (ELI5): اگر موضوع علمی یا پیچیده‌ای را متوجه نمی‌شوید، در درخواست خود بنویسید «توضیح بده مثل اینکه ۵ ساله هستم (ELI5)». چت جی‌پی‌تی تمام اصطلاحات تخصصی را حذف و موضوع را به ساده‌ترین شکل بیان می‌کند.
+
+🔸 استخراج چکیده (TL;DR): اگر حوصله خواندن یک مقاله یا ایمیل طولانی را ندارید، متن را ارسال کنید و در انتها بنویسید «خلاصه کوتاه (TL;DR)» تا در چند جمله لپ مطلب را بگیرید.
+
+🔹 خروجی جدولی (FORMAT: TABLE): به جای دریافت پاراگراف‌های نامرتب، مثلا هنگام مقایسه دو محصول، عبارت «نمایش به صورت جدول (FORMAT: TABLE)» را اضافه کنید تا اطلاعات کاملا منظم و خوانا تحویل داده شود.
+
+🔸 کشف نقاط ضعف (DEVIL’S_ADVOCATE): یک ایده کاری دارید؟ با اضافه کردن عبارت «وکیل مدافع شیطان»، هوش مصنوعی تمام دلایل احتمالی شکست ایده و نقاط ضعف آن را بی‌رحمانه به شما گوشزد می‌کند.
+
+🔹 درخواست اطلاعات ناقص (MISSING_INFORMATION): به جای اینکه هوش مصنوعی با اطلاعات کم شما یک جواب ناقص بسازد، عبارت «ابتدا اطلاعات ناقص را مشخص کن» را بنویسید. با این کار، چت جی‌پی‌تی ابتدا سوالات ضروری را از شما می‌پرسد تا دقیق‌ترین خروجی را بسازد.
+
+🔸 تحلیل گام‌به‌گام (CHAIN_OF_THOUGHT): با استفاده از دستور «تفکر زنجیره‌ای»، هوش مصنوعی مجبور می‌شود مراحل استدلال و حل مسئله را قدم‌به‌قدم به شما نشان دهد که خطای منطقی پاسخ‌ها را به شدت کم می‌کند.
+
+🔹 شبیه‌ساز مصاحبه شغلی (MOCK_INTERVIEW): با نوشتن دستور «مصاحبه شبیه‌سازی‌شده برای موقعیت...»، چت جی‌پی‌تی نقش یک مصاحبه‌گر را می‌گیرد، مرحله‌به‌مرحله از شما سوال می‌پرسد و پاسخ‌هایتان را ارزیابی می‌کند.
+
+🔸 ریست کردن حافظه (IGNORE_PREVIOUS): وقتی مکالمه طولانی می‌شود و هوش مصنوعی گیج می‌زند، با فرمان «بازنشانی دستورهای قبلی» به او بگویید کل پیام‌های قبلی را نادیده بگیرد و با یک نقش جدید شروع به کار کند.
+
+با استفاده از این دستورات ساده، می‌توانید هوش مصنوعی را از یک ربات پاسخ‌گوی ساده، به یک مشاور، تحلیلگر و همکار حرفه‌ای تبدیل کنید.
+
+🧠 @NovinAIplus
+</div>
+
+## IranIntlTV — post 340259
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_340259_1780427427.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+بر اساس گزارش‌های رسیده به ایران‌اینترنشنال، سجاد (داود) صادقی مولان، شهروند ساکن کیانشهر تهران، در جریان اعتراضات روز ۱۹ دی‌ماه در این منطقه، بر اثر اصابت گلوله نیروهای حکومتی به سرش کشته شد.
+
+بنا بر این گزارش، پیکر این جاویدنام عصر ۲۱ دی‌ماه در کهریزک به خانواده تحویل داده شد و همان شب در شرایطی که امکان برگزاری مراسم عادی وجود نداشت، با نور تلفن‌های همراه به خاک سپرده شد. همچنین به خانواده و همراهان او هشدار داده شده بود که از اطلاع‌رسانی عمومی درباره کشته شدن او خودداری کنند.
+
+در گواهی فوت علت مرگ «اصابت شی تیز به سر» عنوان شده است.
+
+سجاد (داود) صادقی مولان کارگر بود و دو فرزند خردسال، یک دختر ۹ ساله و یک پسر ۲ ساله، از او به یادگار مانده‌اند.
+</div>
+
+## FarsiVOA — post 219405
+
+<div align="center">
+  <a href="telegram/content/FarsiVOA_219405_1780427430.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚡️گزارش نرگس صبا در برنامه تفسیر خبر از زندگی روزانه مردم در ایران
+@FarsiVOA
+</div>
+
+## FarsiVOA — post 219404
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+علی جوانمردی: عبور کامل از جمهوری اسلامی در داخل ایران صورت می‌گیرد
+</div>
+
+## DW_Farsi — post 125437
+
+<div align="center">
+  <a href="telegram/content/DW_Farsi_125437_1780427431.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🎥 ربات خدمتکار در خانه؛ کمک‌حال یا تازه‌کار؟
+ 
+ربات خدمتکار آماده کمک است؛ البته اگر صبور باشید.
+ربات‌ها هنوز در گرفتن دقیق اشیا، حرکت در فضاهای تنگ و تصمیم‌گیری مشکل دارند.
+
+@dw_farsi
+</div>
+
+## IranianMinds — post 21262
+
+<div align="center">
+  <img src="telegram/content/IranianMinds_21262_1780427434.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 آکسیوس :
+
+ترامپ فکر‌ میکنه که نتانیاهو‌ دیگه کنترلی روی خودش نداره و داره از دست میره.
+
+@IranianMinds
+</div>
+
+## Dirty_Kids — post 390858
+
+<div align="center">
+  <a href="telegram/content/Dirty_Kids_390858_1780427434.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+خب دیگه کافیه؛ اینترنتارو قطع کنید.
+
++هندزفری🔞
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 390857
+
+<div align="center">
+  <a href="telegram/content/Dirty_Kids_390857_1780427436.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+این یه عربه که هیچکدوم از ما ایرانیا از صحبتاش هیچی نمیفهمیم ولی ۲۰ میلیون نفر از ایرانیا ویدیوشو بدون اینکه بفهمن چی میگه لایک کردن! عجیب نیست؟
+
+
+@Dirty_Kids 👻
+</div>
+
+## Hranews — post 113345
+
+<div align="center">
+  <img src="telegram/content/Hranews_113345_1780427439.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+امنیتی‌سازی جامعه با اتهام جاسوسی/ هرمینه هورداد
+
+
+📡
+📡
+📡
+📡
+📡– جمهوری اسلامی، به‌عنوان پدیده‌ای در قالب و جلوه‌ی حکومت مستقر در ایران، از ابتدای استقرارش تاکنون، یکی از اصلی‌ترین اقداماتش این بوده است که هر چیزی را از مفهوم اصلی خودش تهی کند و مفهوم مورد نظر خودش را در آن قالب کرده و به جامعه تحمیل نماید. اتهام جاسوسی نیز از این اصل مبرا نیست، به‌طوری‌که از ابتدای استقرارش و قالب شدنش به کشور و مردم، برای سرکوب بیش‌تر از این نوع اتهام‌زنی بهره برده است. در این مقاله ابتدا با بررسی مفهوم جاسوسی تلاش می‌کنیم این مفهوم را –که در ادبیات سیاسی و در تاریخ سیاسی جهان وجود داشته و دارد—، توصیف کنیم تا ادامه بتوان از دالان فهم واقعیت به این دریافت رسید که جمهوری اسلامی چگونه از هر مفهومی ابزار سرکوب می‌سازد و از آن برای کنترل جامعه استفاده می‌کند. در واقع، آن‌چه در این مقاله به آن می‌پردازیم، اگرچه موضوع تازه‌ای نیست، اما کنار زدن پرده از روی الگوهای قدرت‌ورزی جمهوری اسلامی است. شناخت این الگوها سبب می‌شود با رمزگشایی از آن‌ها، از این فرم امنیتیِ اتهام‌زنی مشروعیت‌زدایی شود و جمهوری اسلامی، دست‌کم از لحاظ بهره‌برداری مفهومی، خلع سلاح گردد.
+
+در جهان معاصر، امنیت ملی به یکی از بنیادی‌ترین ارکان بقا و تداوم حکومت‌ها تبدیل شده است. دولت‌ها برای حفظ اقتدار سیاسی، ثبات اجتماعی و کنترل ساختار قدرت، همواره تلاش می‌کنند تهدیدات داخلی و خارجی را شناسایی و مدیریت کنند. در این میان، قوانین مرتبط با جرایم امنیتی، به‌ویژه جرم جاسوسی، جایگاهی ویژه پیدا می‌کنند؛ زیرا حکومت‌ها جاسوسی را نه‌فقط یک تخلف حقوقی، بلکه تهدیدی مستقیم علیه موجودیت سیاسی و امنیتی خود تلقی می‌کنند. به همین دلیل، در شرایط جنگی، بحران‌های امنیتی، ناآرامی‌های اجتماعی یا تنش‌های ژئوپولیتیکی، روند تشدید قوانین ضدجاسوسی و افزایش مجازات‌های امنیتی معمولاً سرعت بیش‌تری می‌گیرد و دولت‌ها از این قوانین به‌عنوان ابزاری برای بازدارندگی، کنترل جامعه و مدیریت فضای سیاسی استفاده می‌کنند.
+
+ادامه مطلب
+
+لینک به مطلب در وبسایت خط صلح
+
+#هرمینه_هورداد
+#اتهام_جاسوسی
+
+↘️
+@hranews_bot تماس ✉️ - @Hranews کانال هرانا 🆑
+</div>
+
+## Hranews — post 113344
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+رشت؛ حکم اعدام ۲ زندانی اجرا شد
+
+
+❗️
+❗️
+❗️
+❗️
+❗️– حکم دو زندانی که پیشتر در پرونده های جداگانه از بابت اتهام قتل به اعدام محکوم شده بودند، مورخ ۳۰ اردیبهشت ماه در زندان لاکان رشت به اجرا درآمد.
+
+#اعدام
+
+ادامه مطلب
+
+↘️
+@hranews_bot تماس ✉️ - @Hranews کانال هرانا 🆑
+</div>
+
+## alonews — post 124567
+
+<div align="center">
+  <a href="telegram/content/alonews_124567_1780427440.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈نتانیاهو تا چند دقیقه دیگه یه جلسه امنیتی برگزار میکنه
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 124566
+
+<div align="center">
+  <a href="telegram/content/alonews_124566_1780427440.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈گروسی: به دلیل جنگ و هدف قرار گرفتن برنامه هسته‌ای ایران، ارزیابی آژانس تغییر اساسی کرده و بسیاری از فعالیت‌های هسته‌ای ایران اکنون متوقف شده است
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 124565
+
+<div align="center">
+  <a href="telegram/content/alonews_124565_1780427441.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈هشت نفر کشته و ۴۲ نفر دیگر در مالی روز دوشنبه پس از برخورد یک اتوبوس با مین زمینی در جاده بین باماکو و کایس زخمی شدند، به گزارش رویترز و به نقل از یک مقام اتحادیه حمل و نقل
+
+
+🔴 انفجار در منطقه‌ای رخ داد که جبهه نجات ملی برای تغییر و اصلاح (JNIM) همراه با جبهه آزادی مالی (FLA) فعالیت می‌کنند.
+
+
+🔴 هیچ‌کس مسئولیت گذاشتن مین زمینی را بر عهده نگرفته است
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 124564
+
+<div align="center">
+  <a href="telegram/content/alonews_124564_1780427441.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈ترامپ از طریق Truth Social:
+داشتن فلاویو بولسونارو در دفتر بیضی کاخ سفید بسیار خوشایند بود — جوانی باهوش که کشورش، برزیل، را بسیار دوست دارد!
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 124563
+
+<div align="center">
+  <a href="telegram/content/alonews_124563_1780427441.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈وزیر امور اقتصادی و دارایی: تعیین مالیات مقطوع صفر برای بیش از ۹۰ درصد صاحبان مشاغل که در سال گذشته با موفقیت اجرا شد، امسال نیز تداوم خواهد یافت.
+ 
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 124562
+
+<div align="center">
+  <a href="telegram/content/alonews_124562_1780427442.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈 روبیو: امارات و کویت در جنگ علیه ایران فعالانه و جدی با آمریکا همکاری می‌کنند.
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 124560
+
+<div align="center">
+  <a href="telegram/content/alonews_124560_1780427442.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈ناو «یو‌اس‌اس باکسر» (USS Boxer) که مدتها قبل به منظور عملیات آبی-خاکی در ایران اعزام شده بود، علی‌رغم انتظارات به دریای جنوبی چین رفت و از منطقه دورتر شد!
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 124556
+
+<div align="center">
+  <a href="telegram/content/alonews_124556_1780427442.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈فرماندهی مرکزی ایالات متحده:
+
+
+🔴تمرین همکاری منطقه‌ای ۲۶ دیروز در قلعه هریسون، مونتانا، با مراسم افتتاحیه و یک دوره موانع آغاز شد.
+
+
+🔴همکاری منطقه‌ای بزرگ‌ترین تمرین آموزشی فرماندهی مرکزی با کشورهای آسیای مرکزی و جنوبی است.
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 124553
+
+<div align="center">
+  <a href="telegram/content/alonews_124553_1780427443.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴عرزشی‌ها ،عرزشی‌ها را پاره کردند!
+
+
+🔴عرزشی ها، عرزشی‌های مخالف مذاکره را کتک زدند و پلاکارد گفته خامنه‌ای را هم پاره کردند.
+
+
+🔴چند عرزشی در تجمع شبانه مشهد از لباس شخصی ها کتک خوردن و حالا قرار شده موافق و محالف در میدانهای مختلف جنع بشوند!
+
+
+✅@AloNews
+</div>
+
+## alonews — post 124552
+
+<div align="center">
+  <a href="telegram/content/alonews_124552_1780427445.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈احتمال وقوع سیلاب در ۱۱ استان کشور
+
+
+🔴سازمان مدیریت بحران: احتمال وقوع بارش شدید، سیلاب، تگرگ و صاعقه در ۳ روز آینده در استان‌های آذربایجان شرقی، گیلان، مازندران، گلستان، خراسان شمالی، خراسان رضوی، سمنان، ارتفاعات تهران، البرز و نیمه شمالی آذربایجان غربی وجود دارد.
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+---
 📅 بروزرسانی: 1405/03/12 22:24
 ---
 
