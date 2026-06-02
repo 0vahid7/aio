@@ -7,6 +7,138 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/13 01:14
+---
+
+## VahidOOnLine — post 243425
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_243425_1780436659.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️خبرگزاری مهر، بامداد چهارشنبه، ۱۳ خردادماه، از «شنیده‌شدن صدای انفجار‌هایی در محدوده جزیره قشم» خبر داد. مهر نوشت: «ماهیت این صداها به طور دقیق مشخص نیست و هیچ‌ یک از نهادهای رسمی نظامی و انتظامی تا این لحظه درباره علت وقوع این صداها اظهارنظری نکرده‌اند».
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 243424
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_243424_1780436660.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️یک مقام آمریکایی و منابع آگاه، روز سه‌شنبه، به «ای‌بی‌سی نیوز» اعلام کردند که دونالد ترامپ، رئیس‌جمهوری آمریکا، در جریان نشست روز جمعه در «اتاق وضعیت» کاخ سفید، تضمین‌های شفاهی مذاکره‌کنندگان ایرانی را ناکافی دانسته و خواستار مکتوب شدن تعهدات هسته‌ای مشخص از سوی تهران در توافق اولیه شده است. مارکو روبیو، وزیر امور خارجه آمریکا، در جلسه استماع کمیته روابط خارجی سنا تایید کرد که واشنگتن پیش از هرگونه پیشرفتی، خواهان تعهد مکتوب ایران برای تعیین تکلیف اورانیوم غنی‌شده در اعماق کوه‌ها و پذیرش محدودیت‌های شدید یا لغو کامل غنی‌سازی است و تاکید کرد که تا زمان اجرای این تعهدات، هیچ دارایی آزاد نخواهد شد و تحریمی لغو نمی‌شود. در حالی که ترامپ گفته انتظار دارد ایران ظرف یک هفته این شروط را بپذیرد، مقامات آمریکایی درباره یکپارچگی رژیم ایران در تصمیم‌گیری ابراز تردید کرده‌اند؛ هرچند روبیو اشاره کرد نشانه‌هایی وجود دارد که مجتبی خامنه‌ای، سومین رهبر جمهوری اسلامی، که پس از مجروح شدن در ساعات اولیه جنگ در انظار عمومی دیده نشده، این روزها تا حدی در جریان این توافقات قرار گرفته است.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## WithYashar — post 13300
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+خاورمیانه جنگشم مثل آدمیزاد نیست !
+@withyashar
+</div>
+
+## FoxNewsTwitter — post 342518
+
+<div align="center">
+  <img src="telegram/content/FoxNewsTwitter_342518_1780436661.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+The DOJ is officially walking away from President Trump's proposed Anti-Weaponization Fund.
+
+Acting Attorney General Todd Blanche told lawmakers Tuesday that the department will not move forward with the controversial fund, which was created as part of Trump's settlement with the IRS.
+
+"We are not moving forward with the fund, period," Blanche said during a House Appropriations hearing.
+
+The announcement comes after a federal judge temporarily blocked the effort and just days before a court hearing that was set to examine whether the fund had a legal basis.
+</div>
+
+## IranIntlTV — post 340281
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_340281_1780436662.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+مراد ویسی، تحلیلگر ارشد ایران‌اینترنشنال، گفت: «اسرائیل و مردم ایران مصمم‌ترین و همسوترین بازیگران در مسیر سرنگونی جمهوری اسلامی هستند. آمریکا نیز در نهایت، همان‌گونه که در برابر دیگر بازیگران چالش‌گر نظم جهانی عمل کرده، به مسیر اقدام قاطع علیه جمهوری اسلامی خواهد پیوست.»
+@iranintltv
+</div>
+
+## IranIntlTV — post 340280
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_340280_1780436663.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+مراد ویسی، تحلیلگر ارشد ایران‌اینترنشنال، گفت: «جمهوری اسلامی آخرین حکومت یاغی جهان است که جهان نیز آن را تحمل نخواهد کرد. جمهوری اسلامی نه در برابر مردم ایران و نه در برابر جهان عقب‌نشینی نخواهد کرد. مردم ایران و نظم جهانی نیز آن را تحمل نخواهند کرد.»
+@iranintltv
+</div>
+
+## IranianMinds — post 21270
+
+<div align="center">
+  <a href="telegram/content/IranianMinds_21270_1780436664.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴سنتکام:
+
+امروز دوم ژوئن ، نیروهای آمریکا یک کشتی بدون بار را که قصد داشت به یکی از بنادر ایران برود با شلیک موشک به موتورخانه آن کشتی از کار انداخت. با وجود اخطارهای پی‌درپی ارتش آمریکا، کشتی اخطارات را نادیده گرفته بود و به همین علت مورد حمله موشکی قرار گرفت.
+
+@IranianMinds
+</div>
+
+## BBCPersian — post 282709
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔻فرماندهی مرکزی ارتش آمریکا اعلام کرد يک نفتکش خالی از محموله را که در حال حرکت به سوی يکی از بنادر ايران در خليج فارس بود، روز سه‌شنبه از کار انداخته‌اند. سنتکام، عصر ۱۲ خرداد، اعلام کرد اقدامات مربوط به محاصره دريايی را عليه نفتکش «ام تی لکسی» با پرچم بوتسوانا،…
+</div>
+
+## BBCPersian — post 282708
+
+<div align="center">
+  <img src="telegram/content/BBCPersian_282708_1780436666.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔻فرماندهی مرکزی ارتش آمریکا اعلام کرد يک نفتکش خالی از محموله را که در حال حرکت به سوی يکی از بنادر ايران در خليج فارس بود، روز سه‌شنبه از کار انداخته‌اند.
+
+سنتکام، عصر ۱۲ خرداد، اعلام کرد اقدامات مربوط به محاصره دريايی را عليه نفتکش «ام تی لکسی» با پرچم بوتسوانا، در حالی که در آب‌های بين‌المللی به سمت جزيره خارک در حرکت بود، اجرا کرده است.
+
+بر اساس اين بيانيه، خدمه اين کشتی هشدارهای مکرر را ناديده گرفتند و طی ۲۴ ساعت چندين بار از اجرای دستورهای نيروهای آمريکايی خودداری کردند.
+
+سنتکام افزود در نهايت يک هواپيمای آمريکايی با شليک يک موشک هلفاير به اتاق موتور کشتی، آن را از کار انداخت و مانع رسيدن نفتکش به ايران شد.
+
+فرماندهی مرکزی آمريکا همچنين اعلام کرد اجرای محاصره تمامی رفت وآمدهای دريايی به بنادر ايران و از بنادر ايران را که از ۱۳ آوريل آغاز کرده ادامه خواهد داد.
+
+📷 Reuters
+https://bbc.in/4fXEWHX
+@BBCPersian
+</div>
+
+## alonews — post 124614
+
+<div align="center">
+  <a href="telegram/content/alonews_124614_1780436666.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴چرا پادشاه بریتانیا اسلام رو میراث بریتانیا میدونه؟ جواب رو از آرش اعلایی بشنویم.
+
+
+🔴نقش برادران شرلی در پیدایش و رسمی شدن مذهب شیعه در ایران.
+
+
+🤔آخوند انگلیسی
+
+
+✅@AloNews
+</div>
+
+---
 📅 بروزرسانی: 1405/03/13 01:04
 ---
 
