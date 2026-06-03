@@ -7,6 +7,206 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/13 03:43
+---
+
+## VahidOOnLine — post 243453
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_243453_1780445631.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+سپاه اعلام کرد در پاسخ به حمله‌ پرتابه‌های آمریکا به یک دکل مخابراتی سپاه در جنوب جزیرۀ قشم، نیروی هوافضای سپاه پایگاه هوایی و بالگردی ایالات‌متحده در یکی از کشورهای منطقه و همچنین مرکز ناوگان پنجم دریایی آمریکا را هدف حملات موشکی و پهپادی قرار داد.
+این اطلاعیه همچنین با اشاره به اینکه در اواخر شب‌گذشته ارتش آمریکا یک نفتکش ایرانی را در حوالی تنگۀ هرمز مورد اصابت پرتابه هوایی قرار داد و این نفتکش از محل موتورخانه دچار خسارت شد، گفت در پاسخ به این حمله و «نقض مقررات تنگه هرمز»، یک شناور متعلق به آمریکا و اسرائیل به نام پانایا هدف موشک‌های نیروی دریایی سپاه قرار گرفت.
+
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## WithYashar — post 13337
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ترامپ الان میاد میگه چون موشک ها از رو آب رد شده مسافر حساب‌ میشن و رعب و وحشتشون شکسته حساب میشه پس این جنگ نیست !!! هرچی شده رفع بلا بوده فکر کنین دادین خمس و زکات ، حالا هم آشتی و من به یک جنگ دیگه پایان دادم و رژیم هم تغییر کرد ولی سلاح هسته ای نباید…
+</div>
+
+## WithYashar — post 13336
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+گروه کومله کردستان در بیانیه‌ای اعلام کرد که ساعت ۲۳:۰۰ به وقت محلی دیشب ، دو موشک ایرانی به مقر حزب کومله در دره آلانه، واقع در شمال شرقی اربیل، اصابت کرده است
+
+در این خبر جزئیات دقیقی از تلفات احتمالی ارائه نشده است.
+@withyashar
+</div>
+
+## FoxNewsTwitter — post 342526
+
+<div align="center">
+  <a href="telegram/content/FoxNewsTwitter_342526_1780445632.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+"His whole aura seems to be contrived."
+
+Laura Ingraham and Reince Priebus break down Democrats' "Platner problem" as Maine Senate candidate Graham Platner's controversies continue to grow. https://twitter.com/IngrahamAngle/status/2061958690559668539#m
+</div>
+
+## FoxNewsTwitter — post 342525
+
+<div align="center">
+  <a href="telegram/content/FoxNewsTwitter_342525_1780445633.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+U.S. forces disabled an oil tanker headed for an Iranian port after the vessel allegedly ignored repeated warnings for nearly 24 hours.
+
+Newly released CENTCOM footage shows the moment a Hellfire missile strikes the ship's engine room, stopping the tanker before it could reach Kharg Island.
+
+Military officials say the vessel was unladen at the time and had repeatedly failed to comply with U.S. directives.
+</div>
+
+## FoxNewsTwitter — post 342524
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+RT @TreyYingst: NEW: American forces conducted self-defense strikes on an Iranian military ground control station on Qeshm Island, according to CENTCOM.
+</div>
+
+## pm_afshaa — post 92196
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_92196_1780445635.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴سنتکام: سپاه پاسداران ادعا کرده که مقر ناوگان پنجم آمریکا تو بحرین و یه پایگاه هوایی آمریکا رو با موشک و پهپاد هدف قرار داده.
+
+همش دروغه و در حقیقت حملات ایران به نیروهای آمریکا ناموفق بوده. آمریکا هیچ آسیبی ندیده و همچنان آماده و هوشیاره تا در برابر هر حمله‌ای واکنش نشون بده.
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## IranIntlTV — post 340304
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_340304_1780445635.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+سپاه اعلام کرد در پاسخ به حمله‌ پرتابه‌های آمریکا به یک دکل مخابراتی سپاه در جنوب جزیرۀ قشم، نیروی هوافضای سپاه پایگاه هوایی و بالگردی ایالات‌متحده در یکی از کشورهای منطقه و همچنین مرکز ناوگان پنجم دریایی آمریکا را هدف حملات موشکی و پهپادی قرار داد.
+این اطلاعیه همچنین با اشاره به اینکه در اواخر شب‌گذشته ارتش آمریکا یک نفتکش ایرانی را در حوالی تنگۀ هرمز مورد اصابت پرتابه هوایی قرار داد و این نفتکش از محل موتورخانه دچار خسارت شد، گفت در پاسخ به این حمله و «نقض مقررات تنگه هرمز»، یک شناور متعلق به آمریکا و اسرائیل به نام پانایا هدف موشک‌های نیروی دریایی سپاه قرار گرفت.
+
+https://iranintl.com/202606039128
+</div>
+
+## FarsiVOA — post 219421
+
+<div align="center">
+  <img src="telegram/content/FarsiVOA_219421_1780445636.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚡️ستاد فرماندهی مرکزی آمریکا در شبکه‌های اجتماعی اعلام کرد که سپاه پاسداران مدعی شده که در حملات امروز با موشک و پهپاد به مقر ناوگان پنجم آمریکا در بحرین و یک پایگاه هوایی آمریکا در منطقه ضربه زده است. سنتکام گفت این ادعا نادرست است و تمام حملات جمهوری اسلامی به نیروهای آمریکایی شکست خورد.
+@FarsiVOA
+</div>
+
+## Dirty_Kids — post 390892
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+بچه ها اسم این بازی عبور مرغ از خیابون  هست ویدئو نگاه کنید خیلی راحت 8 میلیون ازش سود گرفتیم😍 
+😤اگ توم دوس داری خیلی راحت از بازی های انلاین پول در بیاری حتما عضو کازینو شبانه شو
+✅ توی کازینو شبانه بهت اموزش میدیم از بازی های انلاین پول دربیاری👌 کانال کازینو…
+</div>
+
+## Dirty_Kids — post 390891
+
+<div align="center">
+  <a href="telegram/content/Dirty_Kids_390891_1780445636.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+بچه ها اسم این بازی عبور مرغ از خیابون  هست ویدئو نگاه کنید خیلی راحت 8 میلیون ازش سود گرفتیم😍
+
+
+😤اگ توم دوس داری خیلی راحت از بازی های انلاین پول در بیاری حتما عضو کازینو شبانه شو
+✅
+
+توی کازینو شبانه بهت اموزش میدیم از بازی های انلاین پول دربیاری👌
+
+کانال کازینو شبانه راهی برای چند برابر کردن سرمایت 🤷‍♂
+
+کسب درامد انلاین با یه ادم حرفه ای یاد بگیر و‌ پول دربیار 
+💵
+A12
+🎯همین حالا عضو شو و شروع کن👇N
+https://t.me/+6ckCmywafrxiYzk0
+https://t.me/+6ckCmywafrxiYzk0
+</div>
+
+## Dirty_Kids — post 390890
+
+<div align="center">
+  <img src="telegram/content/Dirty_Kids_390890_1780445638.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+#بخوابیم
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 390886
+
+<div align="center">
+  <a href="telegram/content/Dirty_Kids_390886_1780445638.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 تو این مدت که شما نت نداشتید، کلی دختر و پسر از جاهای مختلف جهان با هوش مصنوعی می‌رفتن استادیوم‌های مختلف و عشق میکردن با خودشون؛
+
+● حالا چطور این کارو میکردن؟
+
+وارد ChatGPT میشی ، عکست رو آپلود میکنی و زیرش اینو می‌نویسی :
+
+
+Ultra-realistic TV broadcast screenshot, identity preserved exactly from reference image. Young woman sitting in the crowd at a (اسم تیمتون) home soccer match, filmed by a live broadcast camera.
+She is seated in stadium chairs, leaned back, looking off to the side with a surprised caught-on-camera expression. She wears a (اسم تیمتون) home jersey with jeans, casual match-day styling, relaxed pose, one arm resting on the chair. The jersey should look like a normal full jersey, not a crop top, not rolled up, not tied. Around her are other fans in stadium seats, blurred. Keep the crowd mixed and natural. Add a scoreboard graphic in the top corner, subtle broadcast compression, digital noise, bright stadium lighting, and imperfect live-TV framing. Telephoto sports camera look, authentic televised soccer crowd shot, natural skin texture, no smoothing, 4K.
+
+
+ویدئو هم میشه درست کرد ولی خب اون دیگه رایگان نیست و باید پول خرج کنید.
+
+- 1 : وارد سایت http://openart.ai/home میشی.
+- 2 : گزینه text to video رو انتخاب و عکسی که درست کردید رو آپلود میکنید.
+- 3 : پرامپت زیر رو هم وارد می‌کنید و تمام.
+
+
+character identity reference only (face, hairstyle, proportions).Preserve exact face, hairstyle, skin texture, and identity. Do NOT stylize or beautify.Output: single continuous live sports broadcast shot, 4-5s, 16:9, 1080p, no cuts. SUBJECT:A young woman based on @image1, sitting in a [WRITE YOUR TEAM HERE] football stadium audience.Hands resting naturally on her lap or lightly placed on the seat.Neutral, slightly distant expression.Natural breathing, minimal movement.
+ENVIRONMENT: [اسم تیمتون] stadium crowd during live match.Plastic seats, fans around her wearing [اسم تیمتون] jerseys. Background slightly out of focus.Realistic stadium lighting - day or night.Slight haze from broadcast compression. MOOD:Unstaged, candid, real broadcast moment No cinematic drama. Pure live TV capture. CAMERA:Telephoto broadcast lens (120-150mm).Long-distance zoom from upper stands camera.Strong compression, shallow depth of field.Eye-level, very slight upward tilt.Subtle micro-shake from broadcast stabilization. ACTION (4-5s):[0-2s] She sits still, blinks once. Hands resting naturally.[2-4s] Subtle weight shift, naturally adjusting posture. Minimal body movement.[4-5s] Small hand reposition on lap or seat. Slight head turn toward the field._ DETAILS:No posing. No eye contact with camera. Skin texture realistic, no smoothing or beautification. Slight motion blur on background crowd.Faint broadcast scoreboard UI visible in corner.
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 390885
+
+<div align="center">
+  <img src="telegram/content/Dirty_Kids_390885_1780445639.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 فوری: گزارش هایی منتشر شده که محمدرضا شهبازی، مجری برنامه پاورقی دیشب مورد تجاوزِ ۳ نفر قرار گرفته و برنامه پاورقی فعلا به طور موقت متوقف شده!
+
++ هنوز جزئیات دقیقی بیرون نیومده و پلیس در حال بررسیه!
+
+
+@Dirty_Kids 👻
+</div>
+
+---
 📅 بروزرسانی: 1405/03/13 03:33
 ---
 
