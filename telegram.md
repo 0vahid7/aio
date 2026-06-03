@@ -7,6 +7,163 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/14 01:46
+---
+
+## VahidOOnLine — post 243582
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_243582_1780524991.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+مجلس نمایندگان آمریکا چهارشنبه با ۲۱۵ رای موافق و ۲۰۸ رای مخالف قطعنامه‌ مربوط به اختیارات جنگی ترامپ را که هدف آن توقف جنگ با جمهوری اسلامی و مشروط کردن درگیری‌ها به مجوز کنگره است، تصویب کرد. چهار جمهوری‌خواه نیز به این قطعنامه پیشنهادی دموکرات‌ها رای مثبت دادند.
+این رای‌گیری تا حد زیادی جنبه نمادین دارد. هر قطعنامه‌ای برای اجرایی شدن باید در سنا نیز تصویب شود و برای غلبه بر وتوی ترامپ، به اکثریت دوسوم در هر دو مجلس نیاز دارد.
+با این حال، این اقدام پس از آن صورت گرفت که سه قطعنامه پیشین درباره اختیارات جنگی در مجلس نمایندگان با اختلاف آرای رو به کاهش ناکام مانده بودند. سنا نیز ماه گذشته در یک رای‌گیری رویه‌ای، قطعنامه‌ای جداگانه اما مشابه را پیش برد که قبل از آن هفت بار رد شده بود.
+
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## WithYashar — post 13462
+
+<div align="center">
+  <a href="telegram/content/WithYashar_13462_1780524992.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+دوربین‌های مداربسته لحظه‌ای را ثبت کردند که یک پهپاد کامیکازه شاهد-۱۳۶ ایرانی، اوایل صبح چهارشنبه به ترمینال ۱ فرودگاه بین‌المللی کویت حمله کرد.
+@withyashar 😟
+</div>
+
+## FarsiVOA — post 219521
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔺صدور حکم سه سال زندان علیه سوری بابایی چگینی، از بازداشت‌شدگان اعتراضات دی
+
+▪️سوری بابایی چگینی، از بازداشت‌شدگان اعتراضات دی‌ ۱۴۰۴، به سه سال حبس محکوم شد.
+
+⬇️ بیشتر بخوانید:
+https://ir.voanews.com/a/iranian-protester-souri-babaei-chegini-sentenced-three-years/8157018.html
+@FarsiVOA
+</div>
+
+## FarsiVOA — post 219520
+
+<div align="center">
+  <a href="telegram/content/FarsiVOA_219520_1780524995.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚡️رضا پرچیزاده در برنامه تفسیر خبر: پرزیدنت ترامپ حرف آخر را همان اول زده است
+@FarsiVOA
+</div>
+
+## Dirty_Kids — post 390950
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+بچه ها اسم این بازی عبور مرغ از خیابون  هست ویدئو نگاه کنید خیلی راحت 8 میلیون ازش سود گرفتیم😍 
+😤اگ توم دوس داری خیلی راحت از بازی های انلاین پول در بیاری حتما عضو کازینو شبانه شو
+✅ توی کازینو شبانه بهت اموزش میدیم از بازی های انلاین پول دربیاری👌 کانال کازینو…
+</div>
+
+## Dirty_Kids — post 390949
+
+<div align="center">
+  <a href="telegram/content/Dirty_Kids_390949_1780524996.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+بچه ها اسم این بازی عبور مرغ از خیابون  هست ویدئو نگاه کنید خیلی راحت 8 میلیون ازش سود گرفتیم😍
+
+
+😤اگ توم دوس داری خیلی راحت از بازی های انلاین پول در بیاری حتما عضو کازینو شبانه شو
+✅
+
+توی کازینو شبانه بهت اموزش میدیم از بازی های انلاین پول دربیاری👌
+
+کانال کازینو شبانه راهی برای چند برابر کردن سرمایت 🤷‍♂
+
+کسب درامد انلاین با یه ادم حرفه ای یاد بگیر و‌ پول دربیار 
+💵
+A13
+🎯همین حالا عضو شو و شروع کن👇N
+https://t.me/+6ckCmywafrxiYzk0
+https://t.me/+6ckCmywafrxiYzk0
+</div>
+
+## Dirty_Kids — post 390948
+
+<div align="center">
+  <img src="telegram/content/Dirty_Kids_390948_1780525000.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+#بخوابیم
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 390947
+
+<div align="center">
+  <a href="telegram/content/Dirty_Kids_390947_1780525001.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+به زودی در مشهد 😂😂😂😂
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 390946
+
+<div align="center">
+  <a href="telegram/content/Dirty_Kids_390946_1780525002.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+#شهبازی‌ کان پر
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 390945
+
+<div align="center">
+  <a href="telegram/content/Dirty_Kids_390945_1780525004.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+این دختر استریمر اخیرا بدلیل بسیار، مودب بودن، با نزاکت بودن، باشعور بودن، کص بودن، صورتی بودن و ممه بزرگ بودن خیلی معروف شده:
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 390944
+
+<div align="center">
+  <a href="telegram/content/Dirty_Kids_390944_1780525007.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+نزدیک بود تو تجمعات شبانه تلفات بدن که مویی رد شد :
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 390943
+
+<div align="center">
+  <a href="telegram/content/Dirty_Kids_390943_1780525009.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+دوس پسرم جوابمو نمیده حتما داره بهم خیانت میکنه😡💔 همون موقع دوس پسرش تو باشگاه:
+
+
+@Dirty_Kids 👻
+</div>
+
+---
 📅 بروزرسانی: 1405/03/14 01:34
 ---
 
