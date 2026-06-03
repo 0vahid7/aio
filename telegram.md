@@ -7,6 +7,122 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/14 01:34
+---
+
+## FoxNewsTwitter — post 342584
+
+<div align="center">
+  <img src="telegram/content/FoxNewsTwitter_342584_1780524297.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+BREAKING: President Trump suffered a rare defeat in the House after Democrats and a handful of Republicans voted to sharply curb his war powers in Iran.
+
+Lawmakers voted 215-208 to withdraw troops from using military force against Iran absent congressional authorization.
+
+All Democrats present backed the measure, joined by Reps. Thomas Massie, Warren Davidson, Brian Fitzpatrick, and Tom Barrett — the only Republicans to break with the president.
+
+The vote is largely symbolic for now. Trump is expected to veto the resolution, and supporters do not have the votes needed to override it. But the bipartisan rebuke highlights growing divisions on Capitol Hill over U.S. involvement in Iran.
+</div>
+
+## FoxNewsTwitter — post 342583
+
+<div align="center">
+  <img src="telegram/content/FoxNewsTwitter_342583_1780524298.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+The NBA Finals are coming back to Madison Square Garden — and President Trump is expected to be in the building.
+
+Trump plans to attend Game 3 when the Knicks host the Spurs in New York, adding another layer of attention to the franchise's first Finals appearance since 1999.
+
+The president has openly praised the Knicks' playoff run and said he was invited by owner James Dolan to attend a game.
+
+Now all eyes turn to the Garden as New York gets ready for one of the biggest basketball nights the city has seen in a generation.
+</div>
+
+## FoxNewsTwitter — post 342582
+
+<div align="center">
+  <a href="telegram/content/FoxNewsTwitter_342582_1780524298.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+"[America is] truly a bastion of freedom and liberty... and that's what we need to continue to hold on to and fight for." — Actor Zachary Levi
+</div>
+
+## VahidOnline — post 75930
+
+<div align="center">
+  <img src="telegram/content/VahidOnline_75930_1780524301.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+مجلس نمایندگان آمریکا روز چهارشنبه از قطعنامه‌ای به رهبری دموکرات‌ها حمایت کرد که هدف آن متوقف کردن جنگ با حکومت ایران تا زمان صدور مجوز از سوی کنگره است.
+
+به گزارش رویترز این قطعنامه با ۲۱۵ رای موافق در برابر ۲۰۸ رای مخالف تصویب شد و چهار نماینده جمهوری‌خواه نیز به دموکرات‌ها پیوستند.
+
+این رای‌گیری تازه‌ترین شکست سیاسی دونالد ترامپ در کنگره به شمار می‌رود؛ با وجود آنکه جمهوری‌خواهان در هر دو مجلس اکثریت شکننده‌ای دارند.
+
+بنا به این گزارش، این اقدام عمدتا جنبه نمادین دارد، زیرا برای اجرایی شدن باید در سنا نیز تصویب شود و همچنین برای عبور از وتوی احتمالی دونالد ترامپ به حمایت دو سوم اعضای هر دو مجلس نیاز دارد.
+
+با این حال، این رای‌گیری نشان‌دهنده افزایش نگرانی در کنگره درباره جنگ با حکومت ایران است.
+سه قطعنامه مشابه پیشین در مجلس نمایندگان شکست خورده بودند، اما با اختلاف آرای کمتر از دفعات قبل.
+همچنین سنا ماه گذشته یک قطعنامه مشابه را در یک رای‌گیری رویه‌ای به پیش برد؛ اتفاقی که پس از هفت تلاش ناموفق قبلی رخ داد.
+iranintl
+
+📡 @VahidOnline
+</div>
+
+## IranIntlTV — post 340440
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_340440_1780524301.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+مجلس نمایندگان آمریکا چهارشنبه با ۲۱۵ رای موافق و ۲۰۸ رای مخالف قطعنامه‌ مربوط به اختیارات جنگی ترامپ را که هدف آن توقف جنگ با جمهوری اسلامی و مشروط کردن درگیری‌ها به مجوز کنگره است، تصویب کرد. چهار جمهوری‌خواه نیز به این قطعنامه پیشنهادی دموکرات‌ها رای مثبت دادند.
+این رای‌گیری تا حد زیادی جنبه نمادین دارد. هر قطعنامه‌ای برای اجرایی شدن باید در سنا نیز تصویب شود و برای غلبه بر وتوی ترامپ، به اکثریت دوسوم در هر دو مجلس نیاز دارد.
+با این حال، این اقدام پس از آن صورت گرفت که سه قطعنامه پیشین درباره اختیارات جنگی در مجلس نمایندگان با اختلاف آرای رو به کاهش ناکام مانده بودند. سنا نیز ماه گذشته در یک رای‌گیری رویه‌ای، قطعنامه‌ای جداگانه اما مشابه را پیش برد که قبل از آن هفت بار رد شده بود.
+
+https://iranintl.com/202606031436
+</div>
+
+## alonews — post 124945
+
+<div align="center">
+  <a href="telegram/content/alonews_124945_1780524302.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+💢 اینترنت مخصوص جنگ 
+🚀
+✅
+
+
+⭐️ فقط گیگی 8 هزار تومان
+😍
+
+
+✅ بدون قطعی‌های آزاردهنده
+
+✅ سرعت بالا حتی ساعات شلوغ
+
+✅ مناسب تلگرام، اینستاگرام و یوتیوب
+
+✅ همراه با ساب
+
+
+📈تعداد محدود با این قیمت
+
+
+🤖 @NetAazaadBot
+
+🤖 @NetAazaadBot
+</div>
+
+---
 📅 بروزرسانی: 1405/03/14 01:24
 ---
 
