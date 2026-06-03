@@ -7,6 +7,134 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/13 21:05
+---
+
+## mwarmonitor — post 10106
+
+<div align="center">
+  <img src="telegram/content/mwarmonitor_10106_1780508111.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+✈️دست‌کم ۴ فروند تانکر سوخت‌رسان نیروی هوایی آمریکا اکنون از تل‌آویو و پایگاه هوایی شاهزاده سلطان در عربستان سعودی به سمت خلیج فارس در حال حرکت هستند. قرار است این هواپیماها به دو تانکر دیگر که هم‌اکنون در منطقه فعال‌اند، در کنار یک فروند آواکس E-3B نیروی هوایی آمریکا ملحق شوند.
+
+@mwarmonitor
+</div>
+
+## FoxNewsTwitter — post 342567
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+‌Fox News (Twitter/X)
+
+https://www.foxnews.com/live-news/us-forces-shoot-down-iranian-missiles-drones-in-response-to-fresh-attacks-on-kuwait-bahrain
+</div>
+
+## IranIntlTV — post 340396
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_340396_1780508112.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+خبرگزاری رویترز ویدیویی را از چند انفجار در حوالی منطقه قلعه شقیف (بوفور) واقع در ارتفاعات راهبردی جنوب لبنان در روز چهارشنبه ۱۳ خرداد منتشر کرده است که دود غلیظ ناشی از انفجارها را نشان می‌دهد. تصاویر حاکی از تردد خودروهای نظامی اسرائیل در امتداد مرز لبنان است.
+@iranintltv
+</div>
+
+## FarsiVOA — post 219496
+
+<div align="center">
+  <a href="telegram/content/FarsiVOA_219496_1780508113.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ارتش اسرائیل اعلام کرد نیروهایش در یک عملیات شبانه در جنوب لبنان، یک انبار تسلیحاتی متعلق به سازمان تروریستی حزب‌الله را شناسایی و بازرسی کردند.
+
+نیروهای ارتش اسرائیل در مدت زمانی کوتاه، بیش از ۲۰ زیرساخت متعلق به سازمان تروریستی حزب‌الله را در منطقه با استفاده از شش تُن مواد منفجره منهدم کردند.
+
+در عملیاتی دیگر نیز یک انبار تله‌گذاری‌شده حاوی بمب‌های دستی متعلق به سازمان تروریستی حزب‌الله شناسایی و منهدم شد.
+</div>
+
+## FarsiVOA — post 219495
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+در گفت‌وگو با شاهین مدرس به حملات موشکی و پهپادی جمهوری اسلامی به کویت و بحرین، پاسخ دفاعی سنتکام و تحلیل فارن افرز درباره راهبرد جنگ‌محوری ایران پرداختیم؛ جایی که به گفته او، حکومت ایران توان ادامه حملات پایدار را ندارد و نمی‌تواند از منازعه به‌عنوان اهرم چانه‌زنی مؤثر استفاده کند.
+</div>
+
+## FarsiVOA — post 219494
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔺اسرائیل: برای بازگشت فوری به نبرد با «رژیم تروریستی ایران» آماده‌ایم
+
+▪️ارتش دفاعی اسرائیل چهارشنبه ۱۳ خرداد با انتشار پیامی در شبکه اجتماعی ایکس از بازدید ایال زامیر، رئیس ستاد کل ارتش اسرائیل، به همراه ایال هرئل فرمانده نیروی دریایی، و فرماندهان ارشد این نیرو، از پایگاه حیفا خبر داد.
+
+⬇️ بیشتر بخوانید:
+
+https://ir.voanews.com/a/eyal-zamir-battle-islamic-republic-of-iran-israel-terrorist-regime/8156934.html?withmediaplayer=1%2F%3Fnocach%3D1
+</div>
+
+## BBCPersian — post 282797
+
+<div align="center">
+  <a href="https://t.me/bbcpersian/282797" target="_blank">📎 Download file</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+پادکست برنامه رادیویی جام جهان‌نما، چهارشنبه ۱۳ خرداد ۱۴۰۵
+
+این برنامه رادیویی را می‌توانید هر شب ساعت ۲۰ به وقت ایران، روی موج متوسط ۷۰۲ کیلوهرتز و موج کوتاه ۹۴۶۵ کیلوهرتز بشنوید.
+تکرار برنامه را هم می‌توانید ساعت ۲۱:۳۰ روی موج متوسط ۷۰۲ کیلوهرتز و موج کوتاه ۵۳۹۵ کیلوهرتز گوش کنید.
+@BBCPersian
+</div>
+
+## Dirty_Kids — post 390926
+
+<div align="center">
+  <a href="telegram/content/Dirty_Kids_390926_1780508116.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+آهنگی درباره شهبازی و کارای بدش
+
+
+@Dirty_Kids 👻
+</div>
+
+## alonews — post 124881
+
+<div align="center">
+  <a href="telegram/content/alonews_124881_1780508118.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈 هم اکنون| رعد و برق در غرب استان تهران
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 124880
+
+<div align="center">
+  <a href="telegram/content/alonews_124880_1780508119.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈فاکس نیوز: «جمشید غومی»، مدیرعامل یک شرکت فناوری در ایالت کالیفرنیا، به اتهام تأمین تجهیزات برای برنامه‌های هسته‌ای و نظامی ایران بازداشت شد؛ وزارت دادگستری آمریکا این خبر را اعلام کرد.
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 124879
+
+<div align="center">
+  <a href="telegram/content/alonews_124879_1780508120.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈نتانیاهو : با هم انجام دادیم، تو نزدیکی و همکاری‌ای که قبلاً هرگز نداشتیم 
+🔴باید دوباره بگم، رئیس‌جمهور ترامپ بهترین دوست اسرائیل بوده که تا حالا داشتیم؛ 
+🔴هیچ‌وقت چنین دوستی تو کاخ سفید نداشتیم، او از همه جلو زده، و این شراکت خیلی قوی 
+✅ @AloNews خبر جنگ
+</div>
+
+---
 📅 بروزرسانی: 1405/03/13 20:54
 ---
 
