@@ -7,6 +7,102 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/13 04:03
+---
+
+## VahidOOnLine — post 243455
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_243455_1780446839.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ستاد فرماندهی مرکزی آمریکا، سنتکام، با اشاره به درگیری‌های جدید نیروهای آمریکایی و سپاه اعلام کرد جمهوری اسلامی چندین موشک بالستیک به سمت کشورهای همسایه منطقه شلیک کرد، اما هیچ‌کدام به اهداف مورد نظر اصابت نکردند و هیچ‌یک از نیروهای آمریکایی نیز آسیب ندیدند.
+طبق این اطلاعیه، دو موشک ایرانی که به سوی کویت شلیک شدند، در مسیر سقوط کردند یا حین حرکت متلاشی شدند و سه موشک که به سمت بحرین پرتاب شده بودند، بلافاصله از سوی سامانه‌های پدافند هوایی آمریکا و بحرین رهگیری شدند.
+پیش‌تر سپاه اعلام کرد در پاسخ به حمله‌ پرتابه‌های آمریکا به یک دکل مخابراتی سپاه در جنوب جزیرۀ قشم، نیروی هوافضای سپاه پایگاه هوایی و بالگردی ایالات‌متحده در یکی از کشورهای منطقه و همچنین مرکز ناوگان پنجم دریایی آمریکا را هدف حملات موشکی و پهپادی قرار داده است.
+
+
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## FoxNewsTwitter — post 342527
+
+<div align="center">
+  <a href="telegram/content/FoxNewsTwitter_342527_1780446840.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+Caitlyn Jenner supports Spencer Pratt for Los Angeles mayor ahead of primary results: "We need people like Spencer Pratt to make the changes." https://twitter.com/TheStoryFNC/status/2061897203153588227#m
+</div>
+
+## IranIntlTV — post 340305
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_340305_1780446842.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ستاد فرماندهی مرکزی آمریکا، سنتکام، با اشاره به درگیری‌های جدید نیروهای آمریکایی و سپاه اعلام کرد جمهوری اسلامی چندین موشک بالستیک به سمت کشورهای همسایه منطقه شلیک کرد، اما هیچ‌کدام به اهداف مورد نظر اصابت نکردند و هیچ‌یک از نیروهای آمریکایی نیز آسیب ندیدند.
+طبق این اطلاعیه، دو موشک ایرانی که به سوی کویت شلیک شدند، در مسیر سقوط کردند یا حین حرکت متلاشی شدند و سه موشک که به سمت بحرین پرتاب شده بودند، بلافاصله از سوی سامانه‌های پدافند هوایی آمریکا و بحرین رهگیری شدند.
+پیش‌تر سپاه اعلام کرد در پاسخ به حمله‌ پرتابه‌های آمریکا به یک دکل مخابراتی سپاه در جنوب جزیرۀ قشم، نیروی هوافضای سپاه پایگاه هوایی و بالگردی ایالات‌متحده در یکی از کشورهای منطقه و همچنین مرکز ناوگان پنجم دریایی آمریکا را هدف حملات موشکی و پهپادی قرار داده است.
+
+
+https://iranintl.com/202606030219
+</div>
+
+## Shin_Persian — post 6445
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Shin ✓ @hey_itsmyturn
+Wed, 03 Jun 2026 00:32:01 UTC
+
+Jet activity over western Tehran.
+
+فارسی
+
+فعالیت جنگنده‌ها برفراز غرب تهران.
+
+𝕏 · @shin_persian
+</div>
+
+## FarsiVOA — post 219423
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚡️حقوق ۱۶ میلیون تومانی در برابر تورم ۷۳ درصدی؛ رونمایی از پدیده «شاغلان فقیر»
+@FarsiVOA
+</div>
+
+## Persian_Trend_Official — post 15589
+
+<div align="center">
+  <a href="telegram/content/Persian_Trend_Official_15589_1780446843.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+قیمت نفت صعودی شد و به حدود 97 دلار رسید!
+
+📝 Amir
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## IranianMinds — post 21283
+
+<div align="center">
+  <img src="telegram/content/IranianMinds_21283_1780446844.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴سنتکام:
+
+سپاه ادعا کرده که مقر ناوگان پنجم آمریکا در بحرین و یک پایگاه هوایی آمریکا را یا موشک و پهپاد هدف قرار داده است. همش دروغ است و در حقیقت حملات ایران به نیروهای آمریکا ناموفق بوده است. آمریکا هیچ آسیبی ندیده است و همیشه در هوشیاری کامل است که در برابر هر حمله‌ای واکنش نشان بدهد.
+
+@IranianMinds
+</div>
+
+---
 📅 بروزرسانی: 1405/03/13 03:54
 ---
 
