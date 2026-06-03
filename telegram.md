@@ -7,6 +7,203 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/14 00:14
+---
+
+## VahidOOnLine — post 243576
+
+<div align="center">
+  <a href="telegram/content/VahidOOnLine_243576_1780519494.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️ دونالد ترامپ، رئیس‌جمهوری ایالات متحده، چهارشنبه‌شب ۱۳ خردادماه در کاخ سفید و در پاسخ به سوالی درباره مذاکرات با جمهوری اسلامی گفت احتمال دارد این مذاکرات به نتیجه برسد و حتی ممکن است این اتفاق همین آخر هفته رخ دهد.
+
+ترامپ گفت: «ممکن است این اتفاق بیفتد. اگر رخ دهد، هرچند ممکن است هم رخ ندهد، چه کسی می‌داند، اما اگر اتفاق بیفتد، احتمال دارد همین آخر هفته به نتیجه برسد.»
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 243575
+
+<div align="center">
+  <a href="telegram/content/VahidOOnLine_243575_1780519495.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ویدیوی رسیده به ایران‌اینترنشنال نشان می‌دهد با ادامه اختفای مجتبی خامنه‌ای، شهروندان در گلشهر کرج، اطلاعیه‌ای با عنوان «مفقودی» برای رهبر جمهوری اسلامی نصب کرده‌اند.
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 243574
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_243574_1780519499.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+دونالد ترامپ گفت ممکن است به‌زودی و حتی همین آخر هفته پیشرفتی در مذاکرات با ایران حاصل شود و تهران به امضای اسناد نزدیک است.
+
+او در کاخ سفید به خبرنگاران گفت: «ممکن است اتفاق نیفتد، اما ممکن است همین آخر هفته رخ دهد.»
+
+ترامپ درباره اورانیوم غنی‌شده ایران گفت: «می‌خواهم آن را به دست بیاوریم و در آینده‌ای نه‌چندان دور به دست خواهیم آورد.»
+
+ترامپ همچنین گفت در تلاش است موضوع بازگشایی تنگه هرمز را از درگیری‌ها در لبنان جدا کند.
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## WithYashar — post 13453
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ترامپ: ما در واقع برای اولین بار با حزب‌الله صحبت کردیم. نمی‌دانستیم آن‌ها صحبت می‌کنند.
+@withyashar
+</div>
+
+## WithYashar — post 13452
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ترامپ : تنگه هرمز فوراً باز می‌شه وقتی من یادداشت تفاهم رو با ایران امضا کنم
+تنگه هرمز باز خواهد شد، مین‌روب‌هامون اونجاست
+
+زیر آب هستن، خیلی خوبن، تکنولوژی‌شون فوق‌العاده‌ست
+
+ما مین‌ها رو جمع کردیم، بیشترش رو پاکسازی کردیم.
+@withyashar
+</div>
+
+## WithYashar — post 13451
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+دوستان خواهش میکنم دایرکت جای کامنت دادن به مطالب نیست 😟 خدایا به چه زبونی بگم ؟ بفرستید برای دوستون و باهاش‌چت کنید ، به بچه آدمیزاد چند بار میگن
+</div>
+
+## WithYashar — post 13450
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+خبرنگار: شما هفته قبل گفتید آمریکا می‌ره داخل و مواد هسته‌ای دفن‌شده رو در هماهنگی با ایران بیرون می‌کشه. آیا ایران واقعاً با این موافقت کرده؟
+
+
+ترامپ: خب، بستگی داره داری درباره کدوم روز حرف می‌زنی. این چیزها خیلی هم بزرگ‌نمایی شده. من خودم هم اون رو یه‌جورایی بزرگ‌تر از واقعیت نشون دادم.
+@withyashar 🤣
+</div>
+
+## IranIntlTV — post 340430
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_340430_1780519499.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ویدیوی رسیده به ایران‌اینترنشنال نشان می‌دهد با ادامه اختفای مجتبی خامنه‌ای، شهروندان در گلشهر کرج، اطلاعیه‌ای با عنوان «مفقودی» برای رهبر جمهوری اسلامی نصب کرده‌اند.
+</div>
+
+## RadioFarda — post 157874
+
+<div align="center">
+  <a href="https://t.me/radiofarda/157874" target="_blank">📎 Download file</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+📻بشنوید: سرخط خبرهای نیمه‌شب با رادیوفردا، ۱۴خرداد ۱۴۰۵‌
+
+@RadioFarda
+</div>
+
+## alonews — post 124934
+
+<div align="center">
+  <a href="telegram/content/alonews_124934_1780519502.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈ترامپ: ما طبق توافقی که با ایران در حال مذاکره است، ذخایر اورانیوم با غنای بالای ایران را دریافت خواهیم کرد
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 124933
+
+<div align="center">
+  <a href="telegram/content/alonews_124933_1780519503.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈ترامپ : تنگه هرمز فوراً باز می‌شه وقتی من یادداشت تفاهم رو با ایران امضا کنم
+
+
+🔴تنگه هرمز باز خواهد شد، مین‌روب‌هامون اونجاست
+
+
+🔴 زیر آب هستن، خیلی خوبن، تکنولوژی‌شون فوق‌العاده‌ست
+
+
+🔴ما مین‌ها رو جمع کردیم، بیشترش رو پاکسازی کردیم.
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 124932
+
+<div align="center">
+  <a href="telegram/content/alonews_124932_1780519505.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈ترامپ : اگه توافق ایران نتیجه بده، شاید مردم بتونن شروع کنن به ساخت آپارتمان‌ها و ساختمان‌های اداری تو ایران
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 124931
+
+<div align="center">
+  <a href="telegram/content/alonews_124931_1780519507.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈ترامپ درمورد ایران: ایران یک مشکل واقعی برای جهان است و نه فقط برای منطقه.
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 124930
+
+<div align="center">
+  <a href="telegram/content/alonews_124930_1780519507.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈 ترامپ درباره ایران:در آن بخش از جهان، آتش‌بس زمانی است که شما به شکلی معتدل‌تر تیراندازی می‌کنید.
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 124929
+
+<div align="center">
+  <a href="telegram/content/alonews_124929_1780519509.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈 ترامپ: توافق فعلی، در صورت حصول با ایران، نقطه مقابل توافق قبلی امضا شده توسط اوباما خواهد بود.
+
+
+🔴محاصره ایران شاید شدیدترین باشد و نتایج آن بسیار قابل توجه است.
+
+
+🔴این توافق مورد انتظار مانع از دستیابی ایران به سلاح هسته‌ای خواهد شد و تنگه هرمز پس از امضا به سرعت بازگشایی خواهد شد
+
+
+🔴 می‌خواهم موضوع بازگشایی تنگه هرمز را از خصومت‌ها و تحولات جاری در لبنان جدا کنم
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+---
 📅 بروزرسانی: 1405/03/14 00:04
 ---
 
