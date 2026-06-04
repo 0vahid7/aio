@@ -7,6 +7,23 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/14 05:13
+---
+
+## FoxNewsTwitter — post 342591
+
+<div align="center">
+  <img src="telegram/content/FoxNewsTwitter_342591_1780537432.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+"Even if it does pass in the Senate, Trump will just veto it."
+
+Jesse Watters reacts to the House voting to sharply curb President Trump's war powers in Iran. https://twitter.com/JesseBWatters/status/2062336921104261291#m
+</div>
+
+---
 📅 بروزرسانی: 1405/03/14 05:04
 ---
 
