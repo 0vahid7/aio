@@ -7,6 +7,128 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/14 19:49
+---
+
+## VahidOOnLine — post 243684
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_243684_1780589988.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+فرماندهی مرکزی آمریکا، سنتکام، در شبکه‌های اجتماعی اعلام کرد از ابتدای محاصره دریایی ایران تاکنون ۱۲۷ کشتی تجاری مجبور به تغییر مسیر شده‌اند.
+
+بر اساس این گزارش، شش کشتی متخلف هم توسط نیروهای آمریکایی از کار انداخته شده‌اند.
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## WithYashar — post 13499
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+خبرنگار بین المللی امور خاورمیانه:
+من کاملاً مطمئنم که اسرائیل در مقطعی به بیروت حمله خواهد کرد،
+زودتر از آنچه فکر می‌کنیم،
+سپس ایران پاسخ خواهد داد و آتش‌بس پایان خواهد یافت.
+@withyashar
+</div>
+
+## DEJradio — post 5338
+
+<div align="center">
+  <a href="telegram/content/DEJradio_5338_1780589989.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔺📢 قدردانی یک هموطن از رسانه‌های فارسی‌زبان خارج از ایران برای مقابله با سانسور در دوران قطع اینترنت.
+
+#دژ #قطع_اینترنت
+@DEJradio
+</div>
+
+## IranIntlTV — post 340536
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_340536_1780589991.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+فرماندهی مرکزی آمریکا، سنتکام، در شبکه‌های اجتماعی اعلام کرد از ابتدای محاصره دریایی ایران تاکنون ۱۲۷ کشتی تجاری مجبور به تغییر مسیر شده‌اند.
+
+بر اساس این گزارش، شش کشتی متخلف هم توسط نیروهای آمریکایی از کار انداخته شده‌اند.
+https://iranintl.com/202606041641
+</div>
+
+## IranianMinds — post 21372
+
+<div align="center">
+  <img src="telegram/content/IranianMinds_21372_1780589992.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+چقدر همه چی عالیه
+
+@IranianMinds
+</div>
+
+## alonews — post 125092
+
+<div align="center">
+  <a href="telegram/content/alonews_125092_1780589992.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈فارس : آمریکا برای تبعه خود در کویت هشدار امنیتی صادر کرد
+
+
+🔴سفارت ایالات متحده در کویت از شهروندان خود خواست که احتیاط کرده و دستورالعمل‌های مقامات محلی را دنبال کنند.
+
+
+🔴علاوه بر این، سفارت ایالات متحده در کویت سیتی تمام خدمات کنسولی را به حالت تعلیق درآورده است.
+
+
+🔴واشنگتن همچنین از تبعه خود خواست که از اعتراضات و تظاهرات در این کشور دوری کنند.
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 125091
+
+<div align="center">
+  <a href="telegram/content/alonews_125091_1780589993.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈واشنگتن: ارتباط با ایران از طریق میانجی‌ها ادامه دارد
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 125090
+
+<div align="center">
+  <a href="telegram/content/alonews_125090_1780589993.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈خبرنگار بین المللی امور خاورمیانه:
+من کاملاً مطمئنم که اسرائیل در مقطعی به بیروت حمله خواهد کرد، زودتر از آنچه فکر می‌کنیم، سپس ایران پاسخ خواهد داد و آتش‌بس پایان خواهد یافت.
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 125089
+
+<div align="center">
+  <a href="telegram/content/alonews_125089_1780589993.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈مدیرعامل مایکروسافت: دیتاسنترهای هوش مصنوعی جدید ما به‌اندازه یک رستوران آب مصرف می‌کنند!
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+---
 📅 بروزرسانی: 1405/03/14 19:34
 ---
 
