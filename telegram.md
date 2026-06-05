@@ -7,6 +7,167 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/15 12:12
+---
+
+## mwarmonitor — post 10167
+
+<div align="center">
+  <a href="telegram/content/mwarmonitor_10167_1780648977.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴بندر کنستانتسا در رومانی پس از وقوع یک انفجار به حالت قرنطینه و محاصره امنیتی درآمد. گزارش‌ها حاکی است که اوایل صبح امروز، یک پهپاد دریایی در نزدیکی این منطقه کشف شده بود.
+
+@mwarmonitor
+</div>
+
+## IranIntlTV — post 340621
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_340621_1780648978.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+یک شهروند با ارسال پیامی به ایران اینترنشنال از آزار و اختلال ایجادشده از تجمع حامیان حکومت برای خودروهای آتش‌نشانی و آمبولانس روایت می‌کند. پیام او با هوش مصنوعی خوانده شده است.
+</div>
+
+## FarsiVOA — post 219646
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔺نتانیاهو تصویب آتش‌بس لبنان را به موافقت حزب‌الله به شروط آتش‌بس منوط کرده است
+
+▪️رسانه‌های اسرائیلی می‌گویند که بنیامین نتانیاهو، نخست‌وزیر این کشور، رأی‌گیری کابینه‌اش درباره آتش‌بس با لبنان را که با میانجی‌گری آمریکا تنظیم شده، به موافقت حزب‌الله با شروط طرح‌شده در آتش‌بس مشروط کرده است.
+
+▪️برخی از اعضای کابینه از این آتش‌بس به توصیف آنها «شکننده»، انتقاد کرده‌اند و خواستار آن شده‌اند که این طرح پیش از پذیرش شروط آن توسط اسرائیل، در کابینه به رأی گذاشته شود.
+
+▪️در توافق اسرائیل و لبنان که روز چهارشنبه در پایان دو روز مذاکرات در واشنگتن اعلام شد، سه طرف توافق کردند که آتش‌بس مشروط به توقف کامل حملات حزب‌الله به اسرائیل و خروج نیروهای این گروه از مناطق جنوبی لبنان است.
+
+⬇️ بیشتر بخوانید:
+https://ir.voanews.com/a/8157639.html
+</div>
+
+## DW_Farsi — post 125519
+
+<div align="center">
+  <img src="telegram/content/DW_Farsi_125519_1780648981.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+📸کاریکاتور هفته
+
+مرجان ساتراپی، هنرمند ایرانی‌فرانسوی و خالق کتاب‌های کمیک "پرسپولیس" و "خورش مرغ و آلو" در سن ۵۶ سالگی درگذشت. پرسپولیس زمانی منتشر شد که جامعه جهانی هیچ تصویر روشنی به غیر از روایت‌های رسمی حکومت از زندگی شهروندان ایرانی نداشت و مجموعه خاطرات مصور او از زندگی‌ا‌ش در ایران بعد از انقلاب ۵۷ با تمامی فشارها و سرکوب‌های سیاسی و اجتماعی سندی ماندگار از روایت شهروندان و نه حاکمان از آن دوران شد.
+
+‌‌ساتراپی بعدها به سینما روی آورد و علاوه بر کارگردانی دو نسخه سینمایی از کتاب‌های مصور خود، چند فیلم دیگر هم در آمریکا و فرانسه ساخت. او در بحبوحه خیزش ۱۴۰۱ مجددا به صحنه کتاب مصور بازگشت و کتابی برای آشنایی مخاطبان غیر ایرانی با تحولات داخل ایران تدوین و کارگردانی کرد که با عنوان "زن، زندگی، آزادی" موفقیت فراوان بدست آورد.
+
+@dw_farsi
+</div>
+
+## Persian_Trend_Official — post 15723
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ارتش اسرائیل: فرمانده واحد مهندسی حزب‌الله هفته گذشته ترور شد
+
+ارتش اسرائیل اعلام کرد «عابد حرب»، فرمانده واحد مهندسی حزب‌الله لبنان، در عملیاتی که هفته گذشته انجام شده، کشته شده است.
+
+
+👺Phantom
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## IranianMinds — post 21410
+
+<div align="center">
+  <img src="telegram/content/IranianMinds_21410_1780648981.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+میدون انقلاب موشک خیبر شکن صورتی گذاشتن.
+
+@IranianMinds
+</div>
+
+## Dirty_Kids — post 391034
+
+<div align="center">
+  <a href="telegram/content/Dirty_Kids_391034_1780648983.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+پتیاره چه فیلمی بازی می‌کنه!!!
+
+انقدر دور کیر آخوند چرخیده که سرگيجه ‌گرفته‌
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 391033
+
+<div align="center">
+  <a href="telegram/content/Dirty_Kids_391033_1780648985.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+مدیونتون بشم اگه بزارم یادتون بره 😅
+
+
+@Dirty_Kids 👻
+</div>
+
+## alonews — post 125237
+
+<div align="center">
+  <a href="telegram/content/alonews_125237_1780648987.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈ارتش اسرائیل در پیامی برای ۶ شهر و روستای دیگر شامل الصرفند، تفاحتا، البابليه، قعقعية الصنوبر، المروانيه و السكسكيه هشدار تخلیه صادر کرد
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 125236
+
+<div align="center">
+  <a href="telegram/content/alonews_125236_1780648987.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈شبکه خبری المیادین از حمله پهپادی اسرائیل به شهرک‌های «تول»، «حبوش» و «تبنین» در جنوب لبنان خبر داد.
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 125235
+
+<div align="center">
+  <a href="telegram/content/alonews_125235_1780648988.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴فوری / ارتش اسرائیل: یک فرمانده واحد مهندسی حزب‌الله را ترور کردیم
+
+
+🔴رسانه‌های لبنانی از ترور حاج آدم عبد الحلیم حرب، از فرماندهان یگان مرکزی نبطیه حزب‌الله خبر دادند
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 125234
+
+<div align="center">
+  <a href="telegram/content/alonews_125234_1780648988.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈 از ساعتی بعد از آنکه دختر ترامپ از تصمیمش برای ساخت یک جزیره در آلبانی خبر داد این کشور بهم ریخته است
+
+
+🔴 مردم شعار میدهند کشور را به اسرائیل نمی‌فروشیم. اینکه مردم اروپا داماد ترامپ را هم معادل اسرائیل می‌ دانند پدیده جدیدی است
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+---
 📅 بروزرسانی: 1405/03/15 12:02
 ---
 
