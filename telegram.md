@@ -7,6 +7,85 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/15 15:42
+---
+
+## WithYashar — post 13548
+
+<div align="center">
+  <a href="telegram/content/WithYashar_13548_1780661568.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ستون دود حجیم جنوب مركزي تهرانه همين الان
+@withyashar
+</div>
+
+## mwarmonitor — post 10170
+
+<div align="center">
+  <a href="telegram/content/mwarmonitor_10170_1780661570.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴شب گذشته، نیروهای ایالات متحده یک عملیات رهگیری دریایی و بازرسی بر اساس حق بازدید را علیه کشتی بدون تابعیت و تحریم‌شده MT DAVINA که در اقیانوس هند و در محدوده مسئولیت فرماندهی هند–آرام آمریکا (INDOPACOM) قرار داشت، انجام دادند.
+
+🔸ما به اجرای نظارت و اعمال قانون دریایی در سطح جهانی ادامه خواهیم داد تا شبکه‌های غیرقانونی را مختل کرده و کشتی‌هایی را که در هر نقطه‌ای که فعالیت می‌کنند، پشتیبانی مادی از ایران ارائه می‌دهند، رهگیری کنیم.
+
+🔸آب‌های بین‌المللی نمی‌تواند به‌عنوان سپری برای بازیگران تحریم‌شده مورد سوءاستفاده قرار گیرد. «وزارت جنگ» به محروم‌سازی عاملان غیرقانونی و کشتی‌هایشان از آزادی مانور در حوزه دریایی ادامه خواهد داد.
+
+@mwarmonitor
+</div>
+
+## mwarmonitor — post 10169
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴اختصاصی فایننشال تایمز: تیم حقوقی رئیس‌جمهور ایالات متحده، دونالد ترامپ، بنا بر اسناد دادگاهی که توسط [فایننشال تایمز] مشاهده شده، از تحویل اطلاعات مالی درخواستی وکلای [بی‌بی‌سی]خودداری کرده است. این اطلاعات در چارچوب پرونده افترا به ارزش ۱۰ میلیارد دلار علیه این شبکه پخش‌کننده مطالبه شده بود.
+
+
+@mwarmonitor
+</div>
+
+## IranIntlTV — post 340651
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_340651_1780661572.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+بینش بلور، خواننده پاپ مقیم لس‌آنجلس که با نام «قیصر» شناخته می‌شود، پس از ورود به ایران در مراسم حکومتی عید غدیر در تهران روی صحنه رفت و با در دست داشتن پرچم جمهوری اسلامی اجرا کرد.
+
+ارزیابی بیشتر با محسن مهیمنی، عضو تحریریه ایران‌اینترنشنال
+@iranintltv
+</div>
+
+## Persian_Trend_Official — post 15748
+
+<div align="center">
+  <a href="telegram/content/Persian_Trend_Official_15748_1780661573.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+هم اکنون نیروی دریایی ارتش آمریکا از توقیف یک ابر نفتکش ایرانی در اقیانوس هند توسط تفنگداران دریایی آمریکایی خبر داد.
+
+
+
+👺Phantom
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## alonews — post 125293
+
+<div align="center">
+  <a href="telegram/content/alonews_125293_1780661573.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈حملهِ‌های هوایی به منطقه جبل الصافي جنوب لبنان
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+---
 📅 بروزرسانی: 1405/03/15 15:33
 ---
 
