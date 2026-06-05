@@ -7,6 +7,149 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/15 18:33
+---
+
+## mwarmonitor — post 10175
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🛑 یک پاسخ کلیدی به تمام سوالات شما: چرا جنگ قدرت‌ها آزادیبخش نیست؟ (حتماً مطالعه کنید)
+
+📝 تحلیل استراتژیک: رمزگشایی از شطرنج قدرت‌
+
+🔰زمانی که غرش جنگ طنین‌انداز شد، بمباران دژهای نظامی و حذف سران ارشد نظام از شخص خامنه‌ای تا فرماندهان اول، جرقه‌ای از امید و خرسندی را در دل‌های خسته از استبداد روشن کرد؛ شعله‌ای که با زمزمه‌های آتش‌بس و سایه مذاکرات، گویی رو به خاموشی رفت. اما در پس این گرد و غبار، حقیقتی سخت و عریان نهفته است که باید شجاعانه با آن روبرو شد. واقعیت راهبردی این است که دونالد ترامپ هرگز برای تحقق رویای آزادی و تغییر رژیم — که خواست برحق شماست — قدم به این میدان نگذاشته است. تمام آن واژه‌های پرطمطراق در شبکه‌های اجتماعی و ژست‌های حمایت از انقلاب مردمی، تنها آرایه‌ای دیپلماتیک برای جلب توجه و مشروعیت‌بخشی به ماشین جنگی آمریکا بود. استراتژی واقعی واشنگتن، نه آزادی ایران، بلکه پیاده‌سازی «مدل ونزوئلا» است؛ مدلی مبتنی بر فرسایش، مهار و به زانو درآوردن نظام، بی‌آنکه ساختار آن فرو بپاشد.
+
+📌در این سوی میدان، اسرائیل استراتژی متفاوتی را رقم زد؛ طرحی که هدف نهایی‌اش درهم‌شکستن کامل ساختار رژیم بود. عملیات کوبنده علیه ایست‌های بازرسی و پایگاه‌های سرکوب شروع شد، تنها پیش‌درآمدی بر یک طوفان بزرگتر بود. اسناد دیپلماتیک و اطلاعاتی که از رساندن سلاح توسط موساد به مبارزان کُرد و هدایت عملیات پیچیده از چندین کشور پرده برداشت، گواه یک برنامه جامع برای فعال‌سازی گسل‌های قیام و اعلام فراخوان نهایی فروپاشی بود. اما زنجیرهای ژئوپلیتیک، تل‌آویو را به هماهنگی با واشنگتن زنجیر کرده است. ترامپ با هراس از تکرار کابوس عراق و سوریه و با بهانه جلوه دادن خطر کشتار مردم توسط رژیم، ترمز این طرح جامع را کشید؛ تصمیمی که به یک مشاجره لفظی بی‌سابقه و تنش شدید میان او و مقامات اسرائیلی انجامید. ترامپ از فروپاشی می‌ترسد و هرگز بار تغییر رژیم را به دوش نخواهد کشید.
+
+🔸این یک واقعیت تلخ، اما بیدارکننده است: هر درگیری دیگری ، از دیدگاه کاخ سفید تنها ابزاری است برای تسلیم کردن و رام ساختن جمهوری اسلامی، نه نابودی آن. عالی‌ترین سقف پرواز واشنگتن، روی کار آمدن مهره‌ای دست‌آموز و گوش‌به‌فرمان در همان ساختار پوسیده ونزوئلایی است. سیاست بین‌الملل، بازار معامله قدرت‌هاست و هیچ بیگانه‌ای آزادی را در سینی طلایی به ما هدیه نخواهد داد. این فرجام، یک پیام تاریخی و حماسی برای ما دارد: چشم دوختن به دستان قدرت‌های خارجی، سرابی بیش نیست. کلید فتح و سرنگونی این فرعون، تنها و تنها در دستان توانمند و اراده پولادین خود مردم است. این بار سنگین را هیچ ارتشی بر دوش نخواهد کشید؛ این خاک را خود ملت، با تکیه بر زنجیرهای از هم گسیخته‌اش، آزاد خواهد کرد.
+
+
+@mwarmonitor
+</div>
+
+## FoxNewsTwitter — post 342650
+
+<div align="center">
+  <a href="telegram/content/FoxNewsTwitter_342650_1780671801.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+A routine traffic stop spiraled into chaos when a handcuffed suspect slipped his restraints and commandeered a Dallas police cruiser with an officer in the back seat.
+
+Officers initially stopped the car to further restrain the 37-year-old Stacey Huffman after he removed his seatbelt and tried to open the locked rear door.
+
+Bodycam video shows once the officers stepped out of the vehicle, Huffman climbed into the driver’s seat and sped away.
+
+The suspect eventually bailed out of the car after being tased, jumping from the vehicle while still traveling around 50 mph.
+
+Authorities say Huffman had already been arrested before turning the police SUV into a getaway car, and he now faces a new slew of charges.
+</div>
+
+## FoxNewsTwitter — post 342649
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+‌Fox News (Twitter/X)
+
+Will Sydney Sweeney and Scooter Braun be engaged this year?
+
+Our sponsor Kalshi’s prediction market currently puts the chance at 20%.
+
+https://www.foxnews.com/entertainment/sydney-sweeney-scooter-braun-take-red-hot-romance-streets-new-york
+</div>
+
+## FarsiVOA — post 219671
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔺اعتصاب غذای دانشجویان پزشکی دانشگاه بوشهر؛ التهاب در دانشگاه‌ها ادامه دارد
+
+▪️خبرنامه امیرکبیر گزارش داد که دانشجویان دانشگاه علوم پزشکی بوشهر در اعتراض به کیفیت بد غذای سلف، از روز چهارشنبه ۱۳ خرداد اعتصاب غذا کرده‌اند. به گزارش این خبرنامه که رخدادهای دانشگاه‌های ایران را پوشش می‌دهد اعلام کرد دانشجویان معترض، نسبت به کیفیت پایین غذا، تنوع محدود وعده‌های غذایی، مشکلات بهداشتی و بی‌توجهی مسئولان به سلامت دانشجویان، اعتراض دارند.
+
+⬇️ بیشتر بخوانید:
+
+https://ir.voanews.com/a/iran-bushehr-university-protest/8157672.html/?nocach=1
+</div>
+
+## Dirty_Kids — post 391060
+
+<div align="center">
+  <a href="telegram/content/Dirty_Kids_391060_1780671803.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+دوست و یار سعید طوسی هم بودی پس😁
+پس بگو چرا برگشتی 👈🏽🍑
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 391059
+
+<div align="center">
+  <img src="telegram/content/Dirty_Kids_391059_1780671805.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+امیرحسین ثابتی، نماینده مجلس:
+آمریکا بعد از جام جهانی، سنگین‌تر و با شدت بیشتر به ایران حمله میکنه؛ اونا، ایران رو تبدیل به غزه دوم میکنن.
+
+نباید بگیم، اگه اونا حمله کردن ما هم حمله میکنیم، بلکه باید طوری باشه که حتی اگه فقط لفظشو بیان، ما بهشون حمله کنیم – تا اینطوری دیگه طرف مقابل جرئت نکنه همچین حرفی بزنه.
+ما باید با یه حمله پیش‌دستانه، پتروشیمی‌ها و زیرساخت‌های منطقه رو بزنیم.
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 391058
+
+<div align="center">
+  <img src="telegram/content/Dirty_Kids_391058_1780671805.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 متن کامل بیانیه کاخ سفید:
+
+«استیون ویتکوف، فرستاده ویژه ریاست جمهوری ایالات متحده، به همراه آنا اسکروگیما، سفیر ایالات متحده در عمان، امروز در مسقط با دکتر عباس عراقچی، وزیر امور خارجه ایران، که میزبان آن سید بدر البوسعیدی، وزیر امور خارجه عمان بود، گفتگو کردند.
+
+گفتگوها بسیار مثبت و سازنده بود و ایالات متحده عمیقاً از سلطنت عمان به خاطر حمایتش از این ابتکار تشکر می‌کند.
+
+فرستاده ویژه ویتکوف به دکتر عراقچی تأکید کرد که از رئیس جمهور ترامپ دستور دارد تا در صورت امکان، اختلافات دو ملت را از طریق گفتگو و دیپلماسی حل کند. این مسائل بسیار پیچیده هستند و ارتباط مستقیم فرستاده ویژه ویتکوف امروز گامی به جلو در دستیابی به نتیجه‌ای سودمند برای هر دو طرف بود. طرفین توافق کردند که شنبه آینده دوباره ملاقات کنند.»
+
+
+@Dirty_Kids 👻
+</div>
+
+## alonews — post 125336
+
+<div align="center">
+  <a href="telegram/content/alonews_125336_1780671806.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈میدون انقلاب چند روز دیگه
+
+#قیصر
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 125335
+
+<div align="center">
+  <a href="telegram/content/alonews_125335_1780671807.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈شجاع خلیل زاده: امیدواریم فدراسیون پاداش بهتری از دور قبل به بچه‌ها بده
+
+
+🔴پ.ن: سری قبل حواله خودرو ۱۰۰میلیاردی گرفت
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+---
 📅 بروزرسانی: 1405/03/15 18:24
 ---
 
