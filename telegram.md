@@ -7,6 +7,234 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/16 00:23
+---
+
+## VahidOOnLine — post 243862
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_243862_1780692806.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️ساعتی پس از آنکه رویترز، روز جمعه، به نقل از یک مقام آمریکایی اعلام کرد که در میان تنش‌های جاری میان دو کشور، ویزای ورود به ایالات متحده برای بازیکنان تیم ملی فوتبال ایران، تنها ۱۰ روز پیش از نخستین بازی آن‌ها در لس‌آنجلس صادر شده است، فارس، خبرگزاری وابسته به سپاه گزارش داد که ویزای برخی «اعضای کادر فنی و اجرایی» تیم ملی هنوز صادر نشده و سفارت آمریکا تاکنون از صدور آن «خودداری» کرده است.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## WithYashar — post 13573
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+@withyashar operation economic fury
+</div>
+
+## mwarmonitor — post 10192
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🇨🇦🇺🇸🇩🇪🇬🇧 هشدارها و توصیه‌های جدید سفر و امنیت برای بخش‌هایی از خاورمیانه صادر کرده‌اند.
+
+🇩🇪 آلمان: در تاریخ ۵ ژوئن یک هشدار صادر کرده و به‌شدت به شهروندان خود توصیه کرده به دلیل «تشدید وضعیت امنیتی در منطقه» به کشورهای زیر سفر نکنند:
+
+کویت
+
+بحرین
+
+
+🇬🇧 بریتانیا: در ۵ ژوئن هشدار «احتیاط بیشتر» صادر کرده است برای:
+
+عمان
+
+
+🇺🇸 ایالات متحده: در ۴ ژوئن به دلیل احتمال درگیری‌های نظامی، هشدار «بازنگری در سفر» صادر کرده است برای:
+
+بحرین
+
+اسرائیل
+
+کرانه باختری
+
+اردن
+
+کویت
+
+عربستان سعودی
+
+عراق
+
+قطر
+
+عمان
+
+امارات متحده عربی
+
+
+🇨🇦 کانادا: در ۱ ژوئن هشدار «عدم سفر» صادر کرده به دلیل فعالیت‌های نظامی جاری برای:
+
+امارات متحده عربی
+
+@mwarmonitor
+</div>
+
+## mwarmonitor — post 10191
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 مشاور امنیت ملی عراق: پیش‌تر ایران اعلام کرده بود که عراق از اقدامات مربوط به عبور از تنگه هرمز مستثنا است و صحبت‌ها درباره اینکه عراق باید هزینه عبور (عوارض) پرداخت کند ادعایی باطل و بی‌اساس است.
+
+@mwarmonitor
+</div>
+
+## mwarmonitor — post 10190
+
+<div align="center">
+  <a href="telegram/content/mwarmonitor_10190_1780692807.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔸«​خب، ما در ویسکانسین هستیم. جمعیت بزرگی [برای استقبال] داریم. باز هم می‌گم، آمار و ارقام اشتغال‌زایی امروز فوق‌العاده بود. طوری که هیچ‌کس فکرش رو هم نمی‌کرد ممکن باشه؛ چندین برابر چیزی بود که پیش‌بینی می‌کردند باشه. کارخانه‌ها و واحدهای تولیدی در سراسر کشورمون در حال ساخت هستند، اون هم با تعدادی که تا پیش از این، هرگز در تاریخمون سابقه نداشته. و داریم واقعاً خوب عمل می‌کنیم. اوضاع در رابطه با ایران هم به نظر می‌رسه که داره کاملاً خوب پیش می‌ره. ممنونم.»
+
+@mwarmonitor
+</div>
+
+## pm_afshaa — post 92334
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_92334_1780692810.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴ترامپ: به توافقی برای پایان جنگ روسیه و اوکراین بسیار نزدیک شدیم.
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 92333
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_92333_1780692811.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴آکسیوس: استیو ویتکاف و جرد کوشنر مخفیانه رفتن تأسیسات هسته‌ای اوک‌ریج آمریکا تا با نخبه‌ترین متخصص‌های هسته‌ای این کشور جلسه بذارن؛ اونم در شرایطی که مذاکرات با ایران وارد مرحله حساسی شده؛
+
+حدود 100 کارشناس هسته‌ای جمع شدن تا اگه توافقی با ایران نهایی شد، کارهای فنی و اجرایی اون رو مدیریت کنن. این تیم جزو حرفه‌ای‌ترین متخصص‌های هسته‌ای آمریکا هستن و مأموریتشون آماده‌سازی فنی برای هر توافق احتمالی با ایرانه که بعدش اورانیوم رو به صورت تمیز و مجلسی از ایران خارج کنن.
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 92332
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_92332_1780692812.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴رویترز: ویزای بازیکنان تیم جمهوری اسلامی برای ورود به آمریکا صادر شد. 
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom 
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 92331
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_92331_1780692812.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴پوتین: پیشنهاد روسیه در مورد انتقال اورانیوم غنی‌شده از ایران همچنان روی میز است. امیدواریم که آتش‌بس کنونی بین ایران و ایالات متحده به برقراری صلح منجر بشه.
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## IranIntlTV — post 340726
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_340726_1780692813.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔻الجزیره به نقل از منابعی گزارش داد که دست‌کم ۱۵ نفر از اعضای کادر تیم ملی ایران با رد درخواست ویزای خود از سوی ایالات متحده برای حضور در جام جهانی ۲۰۲۶ مواجه شده‌اند. این افراد شامل برخی مربیان، اعضای کادر فنی و کارکنان اجرایی هستند.
+
+🔹منابع این رسانه گفته‌اند که برخی از افرادی که ویزای آن‌ها رد شده، به‌طور رسمی از سوی فیفا به‌عنوان بخشی از کادر مربیگری و یا فنی تیم به رسمیت شناخته شده بودند: «بازیکنان تحت تأثیر این تصمیم قرار نگرفته‌اند.»
+
+🔹رویترز روز جمعه به نقل از یک مقام کاخ سفید خبر داد بازیکنان تیم ملی برای ورود به آمریکا ویزا دریافت کرده‌اند.
+
+🔹ابوالفضل پسندیده، سفیر ایران در مکزیک، اواخر روز پنج‌شنبه گفته بود که تیم ملی هنوز ویزای آمریکا را دریافت نکرده است، اما مقام کاخ سفید اعلام کرد این ویزاها طی شب صادر شده‌اند.
+
+🔹پیش‌تر مهدی تاج، رییس فدراسیون فوتبال گفته بود: «به فیفا اعلام کرده‌ایم اگر ویزای برخی از اعضای تیم ملی صادر نشود، تصمیم‌های دیگری خواهیم گرفت.»
+
+@iranintltvsport
+</div>
+
+## IranIntlTV — post 340725
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_340725_1780692814.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+یونیسف هشدار داد ادامه محدودیت‌های طالبان علیه زنان و دختران، توسعه افغانستان را با خطر جدی روبه‌رو کرده است. به گفته این نهاد، این محدودیت‌ها به کاهش تولید ناخالص داخلی، محرومیت ۶۰۰ هزار زن ماهر از بازار کار و تعطیلی حدود ۴۰ دانشگاه منجر خواهد شد.
+@iranintltv
+</div>
+
+## IranIntlTV — post 340724
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_340724_1780692817.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+بلومبرگ گزارش داده بیش از ۴۰ کشور برای مشارکت در عملیات بازگشایی تنگه هرمز آماده می‌شوند و چند کشور اروپایی تجهیزات مین‌روبی خود را به حالت آماده‌باش درآورده‌اند. همزمان، سنتکام ادعای جمهوری اسلامی درباره شلیک اخطار به ناوشکن‌های آمریکایی در دریای عمان را رد کرده است.
+@iranintltv
+</div>
+
+## FarsiVOA — post 219702
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚡️نیک آهنگ کوثر در برنامه تفسیر خبر: محیط زیست ما به محیط نیست تبدیل شده است
+@FarsiVOA
+</div>
+
+## RadioFarda — post 157943
+
+<div align="center">
+  <a href="https://t.me/radiofarda/157943" target="_blank">📎 Download file</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+📻بشنوید: سرخط خبرهای نیمه‌شب با رادیوفردا، ۱۶ خرداد ۱۴۰۵‌
+
+@RadioFarda
+</div>
+
+## alonews — post 125411
+
+<div align="center">
+  <a href="telegram/content/alonews_125411_1780692820.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈آژانس بین‌المللی انرژی اتمی جمعه 15 خرداد اعلام کرد که یک حادثه جدی در جریان عملیات مین‌روبی در نزدیکی نیروگاه اتمی زاپوریژیا در جنوب شرقی اوکراین رخ داده که بر اثر آن تعدادی از نیروهای ارتش روسیه زخمی شده‌اند
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 125410
+
+<div align="center">
+  <a href="telegram/content/alonews_125410_1780692820.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈مهدی طارمی: اگه تو جام جهانی گل بزنم، اونو به آقا مجتبی تقدیم میکنم
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+---
 📅 بروزرسانی: 1405/03/16 00:13
 ---
 
